@@ -6,9 +6,9 @@
 
 ---
 
-# [A. The Erinyes.](#a-the-erinyes)
+# [A. The Erinyes.](#a-the-erinyes-1)
 
-# [B. The Omphalos.](#b-the-omphalos)
+# [B. The Omphalos.](#b-the-omphalos-1)
 
 ---
 
