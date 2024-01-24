@@ -270,4 +270,223 @@ Of course almost any monster might by the time of Euripides come from Hades, but
 
 I return to the vase-painting in Figs. 9 and 10. So far I have dealt only with the white [GREEK], marked by the hero-snake. It remains to complete the argument by considering the black baetyl stone that surmounts it.
 
-...
+That the black stone surmounting the grave mound is a baetyl or fetich stone utilised as a kind of rude stelè scarcely admits of question. The stone in colour and shape closely resembles the 'Terpon' stone found at Antibes which we know from its inscription to have been sacred to Aphrodite (Kaibel, _Inscr. Gall._ 2424). There was in antiquity and is now among savages a widespread tendency to worship stones of peculiar colour or shape. The natural aerolith was usually black and its sanctity was proved by its descending from the sky. The whole question of the supposed _niger lapis_ has just now become of immediate special interest owing to the discovery in the Forum of what has been alleged to be the black stone of Romulus (see especially C. Smith, _Classical Review_, Feb. 1899, p. 87). This black stone of Romulus or Faustulus is of great importance to my argument because of its connection with the two lions and hence with the cult of the mother of the gods. Rhea-Cybele was of course only the more primitive Asiatic form of the Earth-Mother, Gaia; lions were her natural sacred beasts as long as there were lions where she was worshipped, and they survived in Asia Minor long after they were practically extinct in Greece proper. The black stone was the recognised vehicle or fetich of the mother god. When Pindar (_Pyth._ 3. 77) is 'minded to pray to the Mother' for his friend Hiero, it is because the Mother has special power to heal madness, There is a shrine of the Mother before his very door |||
+
+[GREEK]...
+
+and the Scholiast recounts the occasion of the founding of the shrine; how there was a great thunder-storm, and a stone image of the mother of the gods fell at Pindar's feet [GREEK]... and when Pindar asked the oracle what was to be done, [GREEK]... and the prayer of Pindar is thus explained: [GREEK]. Pindar addresses the Mother not as Rhea, but simply as [GREEK], reminding us of the Semnae who are simply her duplications. The Pindar story is important because we are apt to think of the worship of the Mother of the Gods as imported, late and purely foreign. No doubt the primitive orgiastic Asiatic worship did come in again from without, but the Mother only came back to her own people who had half-forgotten her.
+
+The kathartic power of the Mother's aerolithic stone is of great importance, The mother had power to drive men mad in her angry aspect as Erinys, she and her daughters the Maniae; her stone had also power to cleanse them, for she was Lusia. There is a stone at Dunsany, co. Louth, called the Madman's Stone, and lunatics are seated upon it to bring them to reason (Lady Wilde, _Ancient Cures, Customs, etc. in Ireland_, p. 70). If the stone was a large one you would sit on it, if a small one you would hold it in your hand; the main thing was to get in contact with the divine vehicle. All the various functions of these stones, prophetic, kathartic, prophylactic, _etc._, are only various manifestations of its supernatural power. In primitive days a sacred stone is a god of all work. Thus we have the famous Jupiter lapis that was good to swear by,* there was the stone by which an oath was taken in the Stoa Basileios (Dem. _c. Con._ § 26) [GREEK]* there was the stone at Athens which had a special priest to carry it, the [GREEK] (_C. I. A._ 3. 240) whose seat remains in the Dionysiac theatre. There was the _lapis Manalis_ reputed to be the gate of Orcus and open only on certain days that the Manes, the souls, might issue forth, a manifest grave stone (Preller, Jordan, p. 354). The often cited 'Bethel' of Jacob is of interest because like the omphalos at Delphi it was connected with a dream oracle. The enumeration of all the various wonder-stones even of classical antiquity would take us much too far. They are discussed in Pauly-Wissowa, _s. v._ [GREEK] and [GREEK], and for savage parallels I may refer to Mr. Frazer (_Comment_, Paus. 10. 16, 3 and 8. 25, 4). At present I must confine myself to the more immediate analogies between the vase painting under discussion and the omphalos.
+
+*) For the discussion respecting the Jupiter apis and the [GREEK] of Polybius, 3. 25, see Strachan Davidson, _Selections from Polybius, Prolegomen_. 8. Mr. Strachan Davidson accepts the emendation [GREEK] without hesitation; but see also C. Wunderer, 'Die älteste Eidesformel der Römer (zu Polybius 3. 25, 6),' _Philolog._ 1897, p. 189.
+
+*) Altered from [GREEK] to [GREEK] on the authority of Harpocration by Dindorf and Westermann, and now confirmed by Aristotle, _Ath. Resp._ 7: [GREEK] Hesychius explains [GREEK] as [GREEK].
+
+At the first glance, there will probably occur to any archaeologist the analogy of a curious monument mentioned by Pausanias. At Megalopolis in Messene, it will be remembered (p. 208), there was a sanctuary of the Maniae where, it was reported, Orestes went mad after his mother's slaughter. The words that follow (Paus. 8. 34, 2) are so important that I prefer to quote them in the original: [GREEK]. Mr. Frazer translates 'not far from the sanctuary is a small mound of earth surmounted by a finger made of stone ||| indeed the mound is named Finger's tomb.' I prefer to render the last sentence, 'Indeed the mound is named Dactyl's monument.' Pausanias says the story went, that when the goddesses were driving Orestes out of his wits they appeared to him black; after he had bitten off his finger, they seemed to him white. Mr. Frazer cites a number of interesting savage parallels where atonement is made by the cutting off of a finger or other limb. Spite of these instances I believe the story about the biting off of the finger to have been late and aetiological. The supposed finger was in all probability a kathartic baetyl known as Dactyl and sacred to the Mother. These baetyl stones were called in Crete Dactyls. Pliny (_N. H._ 37. 61) says 'Idaei dactyli in Creta, ferreo colore humanum pollicem exprimunt' and Porphyry confirms it in his curious account (Porphyry _vit. Pyth._ 17) of the purification of the Cretan mystic, [GREEK]. Here there is an obvious fusion of sacrament and celebrant. It is perhaps scarcely necessary to note that the Dactyls are everywhere associated with the worship of the Mother. The Argonauts, when they land in Mysia and invoke the Mother, call also on the name of two Dactyls, _viz._ Cyllenus and Titias
+
+[GREEK]. ||| Apoll. _Rhod._ 1. 1127.
+
+The name Cyllenus is possibly of some importance in connection with the Arcadian Dactyl monument. Immerwahr (_Bonner Studien_ p. 188) has shown abundantly that primitive cults of the Mother abounded in Arcadia, and the legend of Kronos and the stone was not wanting. It seems to me clear that Orestes was purified by a _mother-stone_ or Dactyl, and the sanctuary he came to for purification, here as at Delphi, was an omphalos surmounted by such a stone and must have looked very like the one represented on the vase painting. Peloponnesian antiquaries said, Pausanias remarks (8. 34), that the adventure of Orestes with the Furies of Clytemnestra in Arcadia happened before the trial at the Areopagos. They were right; an adventure substantially the same would happen at any time in any part of Greece whenever a kinsman was slain and the guilty man came to a mother-stone to be purified. At Troezen (8. 31, 4) and at Gythium (3. 22, 1), were stones connected by legend with the purification of Orestes. I do not deny that their connection with Orestes may have been late and due to the prestige conferred on Orestes by Aeschylus, but these widespread purification stones bear witness to the prevalence of this baetyl worship and its kathartic associations.
+
+It may fairly be urged at this point that the analogy between the vase-painting and the omphalos fails at one point. The omphalos was, according to my present theory, originally a [GREEK], covered with [GREEK] and finally copied in stone, but we have no evidence whatever that it was surmounted by a baetyl. The sanctuary on the vase-painting is more complex than the omphalos. It is a [GREEK], the omphalos is merely a [GREEK]. This is perfectly true, and I imagine a sacred baetyl was no wise necessary to a sanctuary of Gaia. The [GREEK] was all that was essential. The story of Alcmaeon is very instructive on this head. Alcmaeon, the Arcadian hero (P. 8. 24, 8) is pursued by 'the avenger of his mother,' [GREEK] ||| the Erinys has not become Erinyes, ||| and Alcmaeon can obtain no relief there or anywhere till he come to a _piece of new unpolluted land_ uncovered since the murder, [GREEK]. Here we have the real primitive view. All mother earth is polluted by the blood of a mother. There is no possible release from this physical fact, no atonement. A new earth is the only possible mercy seat. Later, no doubt, a special [GREEK] became the sanctuary of Gaia Erinys, where she might be appeased, and that [GREEK] was naturally the tomb of a murdered hero or heroine. If that [GREEK] was to have a stelè, what better stelè could be chosen than a black aerolith, sacred also to the mother?
+
+It must be noted at this point that, though the aeroliths fell to earth and belonged to earth, and were vehicles of the earth-mother, they tended, as anthropomorphism advanced, to differentiate off towards the side of the male god. A stone, as soon as you think of your gods anthropomorphically, is not a good symbol of a woman, a [GREEK] is. In many savage races, too, as the earth is a woman so the sky is a man, and thus stones coming from the sky tend to be regarded as vehicles of the male god, and specially of Kronos. Photius (_Vit. Isid. Bibl._ p. 1048) says, [GREEK]. Hesychius says, sub voce, [GREEK], and the story was popularized in the proverbial saying, [GREEK] (Paroimiogr. 2, 468). Zeus doubtless took over the baetyls of the more primitive Kronos cult and Kronos has many features in common with Helios-Ouranos. Eusebius (_Praep. Eu._ 1. 10) makes Ouranos the inventor of baetyls. [GREEK]. This association with Helios-Kronos-Ouranos points back to the most primitive stratum of Pelasgian mythology. Kronos is everywhere the representative of the old order [GREEK]. For the full understanding of the omphalos, this is, I think, of no small importance. On the omphalos there was, at least in historical times, no baetyl stelè, but at Delphi there was such a stone, and down to the time of Pausanias it was daily anointed with oil, and at every festival fresh wool was put about it (P. 10. 24. 6). Pausanias does not say what sort of stone it was, he only says it was [GREEK], but adds [GREEK]. This was no mere late [GREEK], for the same tradition appears in Hesiod (_Theog._ 493).
+
+[GREEK].
+
+The whole childish, savage myth is transparent enough; the sky, Ouranos or Kronos, disgorges ([GREEK]) the aerolith; before he disgorged it he must have swallowed it. The stone was wrapped up in woollen bands, like swaddling clothes, therefore it was a child. A baetyl carefully swathed would present an appearance very like a stiff Italian bambino, and in the the relief of the Capitoline altar (Roscher, p. 1563, Fig. 14) Rhea is presenting to Kronos a swaddled stone which is a very good imitation of a baby. I think, further, that the whole myth was helped out by the fact that the stone was probably oracular and supposed to speak. In the Lithika of the Pseudo-Orpheus we have a curious and interesting account of a [GREEK] given by Phoebus Apollo to Helenos. It could only be consulted after fasting and purification; it had to be washed in pure water and clothed in soft raiment like a child; sacrifice was offered to it as a god. If all was rightly done, and then the sacred stone dandled in the arms, the stone would utter its voice
+
+[GREEK]. ||| _Lithika_, 372.
+
+A few lines further down the stone is called the [GREEK], which brings us face to face with Phoebus Apollo. The double name savours of contaminatio. Liddell and Scott say that the epithet [GREEK] refers to the _purity and radiant beauty of youth_, which was always a chief attribute of Apollo. They reject the old notion that Phoebus was the sun god, but I am by no means sure that the [GREEK] was not a sun or at least an Ouranos stone. There are many indications that the name Phoebus belongs to the pre-Apolline stratum, the stratum of Gaia and Kronos-Ouranos. Thus Antimachus in Hesychius _sub voc._, has [GREEK], and Phoebe the Titaness is recognized by the Delphic priestess as prior to Apollo (Aesch. _Eum._ 4 f.).
+
+[GREEK].
+
+This exactly corresponds to the [GREEK] and makes Phoebe a sort of Kore to Gaia Themis. If we may trust Plutarch (_de Ei_ 20. 1) Phoebus meant [GREEK] and [GREEK]; if so Phoebe is as it were the _white_ side, the opposite to Melaina and Erinys. He goes on to make the interesting statement: [GREEK]. [GREEK] were more likely to concern themselves with questions of taboo and ceremonial sanctity than with the 'purity and radiant beauty of youth.' Finally the use of the word [GREEK] by Euripides should be noted. He says (_Hec._ 827):
+
+[GREEK].
+
+Kassandra was a priestess of Gaia Phoebe, hence her official name was [GREEK], like [GREEK]; and here I may quote again the invaluable line of Timotheos (Frg. 1.)
+
+[GREEK].
+
+Kassandra was prophetess at the [GREEK]-omphalos (Gerhard, _A. V._ 220) of Thymbrae, a shrine taken over by Apollo as he took Delphi. The frenzy of Kassandra against Apollo is more than the bitterness of maiden betrayed, it is wrath of the prophetess of the older order discredited, despoiled:
+
+[GREEK].
+
+Finally to clinch the argument there is the [GREEK], the dream-portent of the _Choephoroi_ (v. 32)
+
+[GREEK]
+
+which Dr. Verrall (_Choephor. ad_ v. 32) upholds against the emendation [GREEK]. The dream portent is of the very essence of the cult of Phoebe and this dream portent is the ancestral Erinys, _i. e._ in very truth [GREEK].
+
+To return to the [GREEK], the Pseudo-Orphic writers no doubt thought it got its name from Apollo, but it seems at least probable that Phoebe or Phoebus, her male correlative, had a prophetic, kathartic stone long before. Whether it ever actually surmounted the omphalos it is of course impossible to say; the [GREEK] of Hesiod looks like a formal setting up. Anyhow the point I plead for is the close analogy and association of the [GREEK] and the [GREEK]; in the light of the vase-painting in Fig. 7, and the [GREEK], it seems to me at least possible that the two once formed one monument in the relation of [GREEK] and [GREEK].
+
+Some slight additional probability is added to this view when we consider that the omphalos certainly was moved. If my theory is right it must have begun as an actual tomb somewhere in what is now the precinct of Gaia near the Styx-Cassotis well and the rock of the Sibyl. In the time of Aeschylus and Euripides, it was undoubtedly in the temple of Apollo. The actual grave mound could not be moved as a grave, but if it was a mound plastered with [GREEK] and if its significance had been lost, it could easily be copied on marble and the marble copy carried to the temple. The omphalos in the time of Pausanias stood, there is little doubt, on the terrace in _front_ of the temple, and there the actual omphalos discovered by the French was found.* This omphalos is obviously a copy of the real cultus object, for the fillets are copied in stone; the original omphalos would of course, like the Kronos stone, be covered with the real woollen fillets. If the omphalos was so freely moved about the like fate may have overtaken the stone of Kronos; it would be smaller and easier to move. In the place where Pausanias saw it, it had no special significance, its proper home was the precinct of Gaia. The incoming worshippers of Apollo were obliged to tolerate and even venerate Gaia, but Kronos being a male god would have been an inconvenient rival to Apollo, and hence everywhere the worship of Kronos became obscured, though even down to the days of Lycophron the tradition that he first held the oracle at Delphi survived.
+
+[GREEK].
+
+On which the scholiast (_ad_ v. 200): [GREEK].
+
+*) _Bull. Corr. Hell._ 1894, p. 180; _Pausanias_ v. p. 318. This omphalos is as yet unpublished but by the kindness of M. Homolle I have been able to see a photograph. It is of white marble, decorated with marble tainiae and from the unwrought condition of the base was evidently sunk in the ground.
+
+It remains to say a word as to the primary meaning of the term _omphalos_; as I am no philologist, I can only approach the question from the point of view of tradition and usage, In the _Iliad_ [GREEK] is used to mean a. the actual navel of the human body (_Iliad_ 4. 525, 13. 568), b. the boss of a shield; there is no necessary implication that the [GREEK] is a central point except in so far as anything dome-shaped has necessarily a centre; the idea seems to be that of _bossiness_. In the _Odyssey_ the word occurs once only (_Od._ 1, 50); Calypso is said to live
+
+[GREEK],
+
+'in a seagirt isle where is the navel of the sea.'
+
+Liddell and Scott say that the order of significance is as follows: 1. the navel, umbilicus, 2. anything like a navel or boss... umbo, 3. a centre or middle point, so in _Od._ 1, 50, and by a later legend Delphi (or rather a round stone in the Delphic temple) was called [GREEK] _as marking the middle point of the earth_, first in Pind. _P._ 4, 131. This sort of loose statement is only tolerated where archaeology is concerned. There is nothing whatever in _Od._ 1. 50 to imply that Calypso dwelt in the middle of the sea. Any one who has looked at a solitary island on an expanse of level sea, has seen it rise boss-like from the level of the sea; if the sea is human an island is its omphalos. If the land is human, is Gaia, the grave mound is its omphalos. Later, when mankind concerns itself with theories, cosmical and geometrical, a naive local egotism sees in the navel of Gaia the centre of the universe, and stories grow up about eagles meeting in their flight.
+
+That is one side of the question, but the ancients themselves conjectured another meaning. The scholiast on Eurip. _Orestes_ 321 says, [GREEK], and more decisively and polemically Cornutus (_de Nat. Deor._ 128.), [GREEK]. The word [GREEK] means especially a divine oracular utterance, and it seems possible that the two notions of the speaking oracular mound or stone and the boss-navel blended; which was prior to the other, is hard to say, but I am inclined to give precedence to the speaking mound, _i. e._ the [GREEK] derivation.
+
+For this reason. The notion of the boss, the navel, though it did not necessarily involve, yet early, as we have seen, led on to the notion of centrality. The notion of centrality is much mixed up with ideas of the central hearth, the [GREEK], and the Hestia-Vesta conception seems to me to belong to a later order of conception than that of Gaia-Erinys, the order of Zeus and Apollo. It is noticeable that in the Rig Veda (2. 333, Wilson) we have 'mighty Agni ||| the Fire-god ||| stationed at the Navel of the Earth... I ask what is the uttermost end of the earth, I ask where is the navel of the world. The altar is the navel of the world. This sacrifice is the navel of the world. Agni is placed by strength upon the navel of the earth.' It is possible that the whole idea of the centre hearth stone came in with the Achaean invasion and Hestia worship. Hestia appears to have assimilated Gaia, at least, in the cosmogony of the [GREEK]:
+
+[GREEK]. ||| Eurip. _Frg._ 938.
+
+and Ovid says (_Fasti_ 6. 266),
+
+Vesta eadem est et Terra subest vigil ignis utrique  
+Significat sedem terra focusque suam.
+
+Cornutus, it will be remembered, gives a conjoint chapter to Demeter and Hestia (Cornut. _de nat. Deor._ 28.) remarking with more truth than he was aware of, [GREEK]. In fact, theology, after articulating the [GREEK] into the [GREEK], usually resumes them into the [GREEK], hence _mutatis mutandis_ late philosophizing authors are often of considerable use in understanding primitive conditions. An Orphic hymn is nearer to primitive conceptions than the clear outlines of Homer. With the omphalos, as with the Erinyes, the difficulty lies chiefly in the analytic habit of our own minds, our determined and exclusive discriminations. We discuss endlessly whether the omphalos was a tomb, an altar, a sanctuary of Gaia, a fetish stone of Kronos, a [GREEK], an [GREEK], when the real solution to all our difficulties is that it was each and all.
+
+I have kept to the end the interesting question of the attitude of Aeschylus towards this ancient ghost and Gaia cult, the Erinyes and the omphalos. How far was he conscious that the Erinyes were ghosts and snakes? Did he know the omphalos was a tomb? If he knew all this, how far did he, to subserve a theological purpose, intentionally conceal his knowledge?
+
+In a parenthesis it must be noted that any mythological investigation should end, not begin, with _literary_ conceptions. The last complete monograph on the Erinyes, Dr. Rosenberg's _Die Erinyen_, a valuable corpus of material, is a good instance of the wrong order of things: it is divided under four heads in the following order:|||
+
+1\. Die Erinyen in der Dichtung.
+
+2\. Über den Ursprung, den Namen und den Begriff der Erinyen.
+
+3\. Der Cultus der Erinyen bei den Griechen.
+
+4\. Die Kunstdenkmäler.
+
+The true order is first cultus, which shows us to what order of beings the mythological figures in question belong, _i. e._ how they were conceived of by their worshippers. Next should come the minor arts ||| vase-paintings and the like ||| because these, though not free from literary influence, are less under the dominance of Homer than _e. g._ the tragedies of Aeschylus ||| Aeschylus who boasted that his dramas were [GREEK] from the heroic banquet. An early black-figured vase will often (_e. g._ Fig. 7) yield up a conception prior to any poetry has left us. Then should follow the name, with the constant proviso that the name, if primitive, will probably be no proper name, but an adjectival cultus appellation. Last will come what is after all the supreme delight of the investigator ||| the examination of how far literature embodies primitive conceptions, how far transforms, what ghosts of ancient thought and feeling hover round, present but not consciously evoked. The evil results of Dr. Rosenberg's methods are seen in his first sentence, which strikes the wrong key-note and vitiates his whole investigation. 'Schon Homer bietet uns ein fest umrissenes Bild von dem Walten der Rachegöttinnen.' It is just this 'fest umrissenes Bild' this literary crystallization that does all the mischief.
+
+In the case of Aeschylus, it is curious to note that, probably owing to the subject-matter of the two plays, the religious attitude in the _Choephoroi_ and the _Eumenides_ is wholly different and even opposite. In the _Choephoroi_ the theology is at bottom so primitive as to be no theology at all; it is daemonology, ghost-worship centred round a tomb. It is not necessary for me to emphasize this point beyond what I have said at p. 214; for Dr. Verrall, in his edition of the play, the keynote is the [GREEK] (v. 65) the 'avenged blood' of kinsfolk. Earth was literally, physically polluted, and poisoned the murderer ||| a notion precisely paralleled by Alcmaeon's story (p. 239). The Earth is Erinys and implacable. But side by side with this, almost indistinguishable from it, is the other thought that the ghost is the Erinys.
+
+[GREEK].
+
+'Apparitions of fiends' (I borrow Dr. Verrall's translation) 'brought to effect by that paternal blood, phantoms which the victim, though his eyebrows twitch in the dark, can clearly see.' The '[GREEK]' shows the transition in the mind of Aeschylus; he does not say the phantoms are the ghosts, but they are brought to effect by the murder. As the doctrine is quaintly put in the mouth of Apollo, with whose religion it had nothing to do, perhaps this is as as much as dramatic propriety would allow. On the word [GREEK] I would make one remark. Dr. Verrall (_ad v._ 282) explains that [GREEK] signified properly the 'access' of an object to an organ of sense, and _vice versâ_, and hence here comes to mean something practically equivalent to our _apparition_. To cause these [GREEK], or, as they are sometimes called, [GREEK], was also one of the functions of [GREEK], _i. e._ dead men, who here again parallel the Erinyes. [GREEK] (Hippocr. [GREEK], p. 123, 20, v. O. Crusius, _Die Epiphanie der Sirene_, p. 103).
+
+I have already noted (p. 214) that Orestes recognizes in the snake the earth daemon, the Erinys of the dead; it is equally clear that to him, his father's tomb, and earth as a sanctuary are thoughts near akin (v. 588)
+
+[GREEK]
+
+and again, v. 124,
+
+[GREEK].
+
+In a word the religion of the _Choephoroi_ is traditional, tribal, inherited, unconscious, profoundly ritualistic. When we turn to the _Eumenides_ the whole attitude is altered, we have a theology conscious, combative, rational, highly moralised, theoretical, with no manner of relation to cultus practices.
+
+As to the general monotheistic tendency of the prologue of the priestess I have little to add to what Dr. Verrall has said (_Euripides the Rationalist_, p. 221). Apollo is preceded by three women divinities, Gaia, Themis and Phoebe. Aeschylus, when he wrote the _Prometheus_, certainly knew that Gaia and Themis were the same (Aesch. _Prom._ 209):
+
+[GREEK].
+
+but as his great desire is to avoid any mention of unseemly conflict between Gaia and Apollo it probably suited his purpose to lengthen out the genealogy. How much he knew of who Phoebe was must remain doubtful. Even Aeschylus did not dare, spite of the analogy of name, to say that Phoebe was related to Apollo; she is [GREEK]. The moment is an anxious one, hence the uneasy comedy of the [GREEK]. At all costs there must be no breach, no mention of the slaying of the serpent.
+
+So far all is fairly plain sailing. Beginning with a complete anthropomorphism Aeschylus is not required to take cognizance of ghosts and ancestor worship. There is only the venerable figure of Gaia and the vague transitional but always respectable Titanesses. But the moment has come when the omphalos and the Erinyes must be presented to the audience; how could that be done? As to the omphalos I do not think that Aeschylus had any suspicion of the truth. By his time it had been completely taken over by Apollo, moved out of the Gaia precinct and was probably regarded as a portable cultus object of unknown origin and immense antiquity serving as an altar and mercy seat for suppliants to Apollo. The Erinyes who as we have seen were really resident _in_ it are only conceived of as temporarily camping round it because Orestes has fled there. It is the sacred object of the temple, that is all. I have sought in vain for any passage in Aeschylus which could fairly be taken to show that he took the omphalos to be a tomb, but in one chorus of Sophocles (_O. T._ 469) the thought is at least subconsciously present. For Sophocles Apollo has become the minister of vengeance, not of reconciliation |||
+
+[GREEK].
+
+Here Apollo is but the double of his father Zeus. Yet it is not forgotten who are the ancient avengers though by a mythological inversion they are made subsidiary.
+
+[GREEK],
+
+where the name [GREEK] points to the ghost aspect ||| the Erinyes. And these [GREEK] haunt the [GREEK]. The Theban elders (_Oed. Tyr._ v. 475) chant the misery and loneliness of the guilty man.
+
+[GREEK].
+
+Here Prof. Jebb observes 'The haunting thoughts of guilt are objectively imaged as terrible words ever sounding in the wanderer's ears.' Yes; and I venture to think more than this, the [GREEK] _are_ [GREEK], they are [GREEK], they are [GREEK]. Though the guilty man shuns the actual tomb, _i. e._ the omphalos whence they rise up to haunt him, it is in vain
+
+[GREEK].
+
+I do not say that Sophocles knew the omphalos was a tomb, but I do say that if his ancestors had never believed it this marvellous chorus would never have been written.
+
+It is when we come to the Erinyes themselves that the theological animus of Aeschylus comes out and here we cannot escape the conclusion that his misrepresentation was wilful and deliberate. All is fair in theology and war. This misrepresentation is in two directions; first, the new and hideous form given to the Erinyes; second, the statement by the priestess and the implication by every one, except Clytemnestra, that the Erinyes are novel apparitions, strangers to the land and of unknown lineage. The whole illusion is most skilfully arranged. In the first place, the Erinyes being [GREEK] are addressed by no name in particular, they are [GREEK] they are [GREEK] and the like. With great dexterity Aeschylus gives them an entirely new form and then turns round and says: We never saw you before, we do not know who you can be. The type he selects is that of the Gorgons and Harpies, shapes not clearly differentiated in ancient art, and that he has gone to graphic art for his inspiration is clear from the verses.
+
+[GREEK]. ||| v. 50.
+
+The whole horrible description is a vociferous protest against the simple fact that the Erinyes are the same as the familiar Athenian Semnae,* in whose imagination, as the candid Pausanias observed, there was 'nothing fearful,' any more than there was in the images of other underworld divinities. [GREEK] (Paus. 1. 28. 6). Pausanias knew that the Semnae and the Erinyes were the same. [GREEK]. It is noticeable that he refers to Aeschylus only as an innovator. The literary innovation of Aeschylus was powerless to touch cultus practice.
+
+*) The question of the age of the cult of the Semnae at Athens, and its exact character, can only be dealt with satisfactorily in relation to the whole group of the Areopagos cults. This I hope to discuss on a later occasion. At present I can only record my conviction that the cult of the Semnae is a form of the worship of Gaia intimately related to the very primitive ritual of the Thesmophoria. The Eleusinion, the site of which within very narrow limits must have been close to, if not actually on the site of an ancient Thesmophorion ||| the whole group of Areopagus cults being essentially chthonic ||| preceded, I believe, the cultus settlements on the Acropolis. The Cecropidae, the 'white' side of the Semnae, passed in part on to the Acropolis, but their worship there was always of a subordinate character. In a former discussion of the Cecropidae (_J. H. S._ 12. p. 350) I have tried to show that they were originally two not three, and that these two, Pandrosos and Aglauros, represented originally what I should now call the 'black' and 'white' side of the Semnae.
+
+Having made these sensational innovations in the visible form of his Erinyes, and having artfully suppressed their names as though they were unknown and nameless, Aeschylus paves the way for the amazing statement that the Delphic priestess knows them not.
+
+[GREEK]. ||| v. 57.
+
+She refers them to Apollo, he being above all things [GREEK]; with great skill, the taboo of uncleanness that should have rested on the guilty is shifted to the avengers. Even from the Homeric point of view this is a gross misrepresentation. It is Orestes who is [GREEK]. Apollo does not feign complete ignorance; he avoids the issue by dexterously insulting the Erinyes for their virginity. It would indeed have been dramatically impossible for Apollo to say he did not know them; a few hours before the same audience had listened to a full account of Apollo's views on the Erinyes, given by his protégé Orestes; an account which shows, as has clearly been pointed out, an intimate and perfect knowledge of their nature and primitive origin (_Choeph._ vv. 275-295).
+
+Athene's attitude is, however, perhaps the most instructive of all. She, officially, in her capacity as president of the Court of the Areopagos, asks the name and race of the plaintiffs.
+
+Who are ye? this I ask of one and all.
+
+She is conscious that she is officially bound to ask Orestes the question just as much as the Furies, but she skilfully emphasizes the exceptional unfamiliarity of the Erinyes, carefully insisting on their strangeness as a genus not as individuals (v. 410).
+
+[GREEK].
+
+Athene then pulls herself up, none too soon probably for the sympathies of the audience, and adds with pompous copy-book morality.
+
+[GREEK].
+
+The bifurcation of popular theology favoured the position of Aeschylus; technically he is correct, the Erinyes were not [GREEK] in the Olympian sense; they were [GREEK], their worship was conducted with the rites of [GREEK] not of [GREEK], in a word they were divinities of the old Gaia-worshipping stock.
+
+The audience must have waited breathless to hear what answer the Erinyes would make to the question when thus officially challenged; their answer is skilfully contrived to the same end, though its dignity contrasts strongly with the aggressive discourtesy of Athene.
+
+[GREEK].
+
+It is the grave lofty courtesy of the dames of ancient lineage arraigned before the religious parvenue. Aeschylus, prejudiced theologian as he was, is true to dramatic instinct, but how well contrived it is! 'Children of Night,' not of Earth! that would have been too hazardous, it would have brought them into line with hieratic tradition; 'Curses we are called, Arai, a name by then of evil omen, and no one remembered that it was on the hill of the Arai, that judgment was being given.' Did no one remember? it is all but incredible; Athene is obliged to admit,
+
+[GREEK].
+
+It was by these [GREEK] that all the theological jugglery was carried on. Athene and Aeschylus chose to remember the [GREEK] that favoured their cause, remembered the Arai, the Erinyes, the Maniae, perhaps the Praxidikae, they forgot the Charites, the Semnae, the Eumenides, or rather they separated them off into new divinities.
+
+Apollo and Athene and the priestess ignore the divinity of the ancient ones, but there is one of the dramatis personae who knows perfectly who and what the Furies are and is not ashamed of it. The real truth is put in just the lips that will most discredit it. Clytemnestra knows the Erinyes and has worshipped them with the precise ritual of the [GREEK], the [GREEK], the [GREEK], _i. e._ with the [GREEK], the [GREEK], offered by night [GREEK], offered on the [GREEK], the low hero-altar.
+
+[GREEK].
+
+Even Clytemnestra is made to imply that there was something shameful in the service by night, [GREEK]. Clytemnestra as we have already seen knows that the true vehicle of the Erinys is the earth snake, the [GREEK]; but she goes with the times and adopts the splendid imagery of the dog hunting in dreams.
+
+[GREEK].
+
+The image of the dog was of course specially useful to any one who wanted to vilify the Erinyes.
+
+The conclusive proof to my mind that Aeschylus knew perfectly well who the Erinyes were, is the simple fact that he turned them in the end into Semnae and restored all their ancient functions. This is the very acme of theological duplicity or ||| simplicity. Even an Athenian must have found it hard to believe that for the privilege of living in a cave on the Areopagos the Furies were ready to change in a moment their whole vindictive nature and become the ministrants of
+
+[GREEK]. ||| 903-909.
+
+At Megalopolis it would have been simply impossible to play the piece. An audience at Megalopolis would have risen in a body and cried out, why these are our own Maniae, the black and white ones. It is noticeable that as soon as the [GREEK] have been satisfactorily metamorphosed into Semnae, _i. e._ when the chorus has said:
+
+[GREEK]. ||| 916.
+
+Athene is less guarded in speech and sentiment. She frankly calls the Erinyes, Erinyes, and gives a very complete and satisfactory account, scarcely tallying with her previous ignorance of their nature and functions
+
+[GREEK]. ||| _Eum._ 951.
+
+In the background of the play always, in the foreground sometimes, there is the conflict of cults. It is not over one individual that Apollo and the Erinyes contend, and this they well remember. There was the parallel case of Alcestis which they aptly quote (v. 723)
+
+[GREEK].
+
+The Moirae, and who are they? only as we have already seen another of the [GREEK]. This is clearly brought out in
+
+[GREEK]. ||| _Eum._ 172.
+
+The cultus conflict is also most clearly brought out in the plaint of the Erinyes, that a grievous innovation has been attempted in matters of ritual,
+
+[GREEK]. ||| _Eum._ 727.
+
+It is the last outrage, despite is done to the ancient ritual of the [GREEK], that dated back to days before the vine-god came, when men drank mead. Such was the ritual at Colonos.
+
+[GREEK]. ||| Soph. _Oed. Col._ 480.
+
+And again,
+
+[GREEK]. ||| _Oed. Col._ v. 100.
+
+The Eumenides is based on the great racial reality of a conflict of cults, but to Aeschylus the interest of his plot was that it was a conflict of ideals. Naturally he did not, could not know that in his veins ran the blood of two different races, with alien habits of religious thought. He was all for Zeus and King Apollo, the Father and the Son, with such unification of will and purpose that their religion was practically a monotheism, but he had to reckon with, to reconcile at all costs the ancient cult of the earth goddesses. The ideal of the Erinyes was the ideal of all primitive moralities, an eye for an eye, and above all the indissolubility of the bond of physical kinship, especially through the mother. Aeschylus could not be expected to see that the system was necessary and highly beneficial in its day and that its passing was attended with grave social dangers. He fastens on the harsh side of it, its implacability, its endlessness
+
+[GREEK].
+
+He is all for the new ideal of atonement, for Apollo Katharsios ||| in itself an advance, destined of course in its turn to pass. It is impossible to avoid a regret that he stooped to the cheap expedient of blackening his opponents. That in doing so he was in part self-deceived only makes of the 'Eumenides' a still more human document.
