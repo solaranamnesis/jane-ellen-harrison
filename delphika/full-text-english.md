@@ -6,6 +6,10 @@
 
 ---
 
+# [A. The Erinyes.](#a-the-erinyes)
+
+# [B. The Omphalos.](#b-the-omphalos)
+
 ---
 
 # Delphika. --- A. The Erinyes. B. The Omphalos.
