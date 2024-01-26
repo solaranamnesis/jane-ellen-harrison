@@ -491,19 +491,21 @@ Here Prof. Jebb observes 'The haunting thoughts of guilt are objectively imaged 
 
 I do not say that Sophocles knew the omphalos was a tomb, but I do say that if his ancestors had never believed it this marvellous chorus would never have been written.
 
-It is when we come to the Erinyes themselves that the theological animus of Aeschylus comes out and here we cannot escape the conclusion that his misrepresentation was wilful and deliberate. All is fair in theology and war. This misrepresentation is in two directions; first, the new and hideous form given to the Erinyes; second, the statement by the priestess and the implication by everyone, except Clytemnestra, that the Erinyes are novel apparitions, strangers to the land and of unknown lineage. The whole illusion is most skilfully arranged. In the first place, the Erinyes being [GREEK] are addressed by no name in particular, they are [GREEK] they are [GREEK] and the like. With great dexterity Aeschylus gives them an entirely new form and then turns round and says: We never saw you before, we do not know who you can be. The type he selects is that of the Gorgons and Harpies, shapes not clearly differentiated in ancient art, and that he has gone to graphic art for his inspiration is clear from the verses.
+It is when we come to the Erinyes themselves that the theological animus of Aeschylus comes out and here we cannot escape the conclusion that his misrepresentation was wilful and deliberate. All is fair in theology and war. This misrepresentation is in two directions; first, the new and hideous form given to the Erinyes; second, the statement by the priestess and the implication by everyone, except Clytemnestra, that the Erinyes are novel apparitions, strangers to the land and of unknown lineage. The whole illusion is most skilfully arranged. In the first place, the Erinyes being πολυώνυμοι are addressed by no name in particular, they are νυκτὸς παλαιαὶ παῖδες they are ἀπόπτυστοι κοραὶ, θαυμαστὸς λόχος and the like. With great dexterity Aeschylus gives them an entirely new form and then turns round and says: We never saw you before, we do not know who you can be. The type he selects is that of the Gorgons and Harpies, shapes not clearly differentiated in ancient art, and that he has gone to graphic art for his inspiration is clear from the verses.
 
-[GREEK]. --- v. 50.
+εἶδόν ποτ᾽ ἤδη Φινέως γεγραμμένας  
+δεῖπνον φερούσας. --- v. 50.
 
-The whole horrible description is a vociferous protest against the simple fact that the Erinyes are the same as the familiar Athenian Semnae,* in whose imagination, as the candid Pausanias observed, there was 'nothing fearful,' any more than there was in the images of other underworld divinities. [GREEK] (Paus. 1. 28. 6). Pausanias knew that the Semnae and the Erinyes were the same. [GREEK]. It is noticeable that he refers to Aeschylus only as an innovator. The literary innovation of Aeschylus was powerless to touch cultus practice.
+The whole horrible description is a vociferous protest against the simple fact that the Erinyes are the same as the familiar Athenian Semnae,* in whose imagination, as the candid Pausanias observed, there was 'nothing fearful,' any more than there was in the images of other underworld divinities. τοῖς δὲ ἀγάλμασιν οὔτε τούτοις ἔπεστιν οὐδὲν φοβερὸν, οὔτε ὅσα ἄλλα κεῖται θεῶν τῶν ὑπογαίων (Paus. 1. 28. 6). Pausanias knew that the Semnae and the Erinyes were the same. Πλησίον δὲ ἱερὸν θεῶν ἐστὶν ἃς καλοῦσιν Ἀθηναῖοι Σεμνὰς Ἠσίοδος δὲ Ἐρινῦς ἐν Θεογονίᾳ. It is noticeable that he refers to Aeschylus only as an innovator. The literary innovation of Aeschylus was powerless to touch cultus practice.
 
 *) The question of the age of the cult of the Semnae at Athens, and its exact character, can only be dealt with satisfactorily in relation to the whole group of the Areopagos cults. This I hope to discuss on a later occasion. At present I can only record my conviction that the cult of the Semnae is a form of the worship of Gaia intimately related to the very primitive ritual of the Thesmophoria. The Eleusinion, the site of which within very narrow limits must have been close to, if not actually on the site of an ancient Thesmophorion --- the whole group of Areopagus cults being essentially chthonic --- preceded, I believe, the cultus settlements on the Acropolis. The Cecropidae, the 'white' side of the Semnae, passed in part on to the Acropolis, but their worship there was always of a subordinate character. In a former discussion of the Cecropidae (_J. H. S._ 12. p. 350) I have tried to show that they were originally two not three, and that these two, Pandrosos and Aglauros, represented originally what I should now call the 'black' and 'white' side of the Semnae.
 
 Having made these sensational innovations in the visible form of his Erinyes, and having artfully suppressed their names as though they were unknown and nameless, Aeschylus paves the way for the amazing statement that the Delphic priestess knows them not.
 
-[GREEK]. --- v. 57.
+τὸ φῦλον οὐκ ὅπωπα τῆσδ᾽ ὁμιλίας  
+οὐδ᾽ ἥτις αἷα τοῦτ᾽ ἐπεύχεται γένος. --- v. 57.
 
-She refers them to Apollo, he being above all things [GREEK]; with great skill, the taboo of uncleanness that should have rested on the guilty is shifted to the avengers. Even from the Homeric point of view this is a gross misrepresentation. It is Orestes who is [GREEK]. Apollo does not feign complete ignorance; he avoids the issue by dexterously insulting the Erinyes for their virginity. It would indeed have been dramatically impossible for Apollo to say he did not know them; a few hours before the same audience had listened to a full account of Apollo's views on the Erinyes, given by his protégé Orestes; an account which shows, as has clearly been pointed out, an intimate and perfect knowledge of their nature and primitive origin (_Choeph._ vv. 275-295).
+She refers them to Apollo, he being above all things καθάρσιος; with great skill, the taboo of uncleanness that should have rested on the guilty is shifted to the avengers. Even from the Homeric point of view this is a gross misrepresentation. It is Orestes who is θεομυσής. Apollo does not feign complete ignorance; he avoids the issue by dexterously insulting the Erinyes for their virginity. It would indeed have been dramatically impossible for Apollo to say he did not know them; a few hours before the same audience had listened to a full account of Apollo's views on the Erinyes, given by his protégé Orestes; an account which shows, as has clearly been pointed out, an intimate and perfect knowledge of their nature and primitive origin (_Choeph._ vv. 275-295).
 
 Athene's attitude is, however, perhaps the most instructive of all. She, officially, in her capacity as president of the Court of the Areopagos, asks the name and race of the plaintiffs.
 
@@ -511,68 +513,94 @@ Who are ye? this I ask of one and all.
 
 She is conscious that she is officially bound to ask Orestes the question just as much as the Furies, but she skilfully emphasizes the exceptional unfamiliarity of the Erinyes, carefully insisting on their strangeness as a genus not as individuals (v. 410).
 
-[GREEK].
+ὑμᾶς θ᾽ ὁμοίας οὐδενὶ σπαρτῶν γένει  
+οὔτ᾽ ἐν θεαῖσι πρὸς θεῶν ὁρωμένας  
+οὔτ᾽ οὖν βροτείοις ἐμφερεῖς μορφώμασι.
 
 Athene then pulls herself up, none too soon probably for the sympathies of the audience, and adds with pompous copy-book morality.
 
-[GREEK].
+λέγειν δ᾽ ἄμομφον ὄντα τοὺς πέλας κακῶς  
+πρόσω δικαίων ἠδ᾽ ἀποστατεῖ θέμις.
 
-The bifurcation of popular theology favoured the position of Aeschylus; technically he is correct, the Erinyes were not [GREEK] in the Olympian sense; they were [GREEK], their worship was conducted with the rites of [GREEK] not of [GREEK], in a word they were divinities of the old Gaia-worshipping stock.
+The bifurcation of popular theology favoured the position of Aeschylus; technically he is correct, the Erinyes were not θεοί in the Olympian sense; they were χθόνιοι, their worship was conducted with the rites of ἐναγίζειν not of θύειν, in a word they were divinities of the old Gaia-worshipping stock.
 
 The audience must have waited breathless to hear what answer the Erinyes would make to the question when thus officially challenged; their answer is skilfully contrived to the same end, though its dignity contrasts strongly with the aggressive discourtesy of Athene.
 
-[GREEK].
+πεύσει τὰ πάντα συντόμως, Διὸς κόρη·  
+ἡμεῖς γὰρ ἔσμεν Νυκτὸς αἰανῆς τέκνα,  
+Ἀραὶ δ᾽ ἐν οἴκοις γῆς ὑπαὶ κεκλήμεθα.
 
 It is the grave lofty courtesy of the dames of ancient lineage arraigned before the religious parvenue. Aeschylus, prejudiced theologian as he was, is true to dramatic instinct, but how well contrived it is! 'Children of Night,' not of Earth! that would have been too hazardous, it would have brought them into line with hieratic tradition; 'Curses we are called, Arai, a name by then of evil omen, and no one remembered that it was on the hill of the Arai, that judgment was being given.' Did no one remember? it is all but incredible; Athene is obliged to admit,
 
-[GREEK].
+γένος μὲν οἷδα κληδόνας τ᾽ ἐπωνύμους.
 
-It was by these [GREEK] that all the theological jugglery was carried on. Athene and Aeschylus chose to remember the [GREEK] that favoured their cause, remembered the Arai, the Erinyes, the Maniae, perhaps the Praxidikae, they forgot the Charites, the Semnae, the Eumenides, or rather they separated them off into new divinities.
+It was by these κληδόνες ἐπώνυμοι that all the theological jugglery was carried on. Athene and Aeschylus chose to remember the κληδόνες that favoured their cause, remembered the Arai, the Erinyes, the Maniae, perhaps the Praxidikae, they forgot the Charites, the Semnae, the Eumenides, or rather they separated them off into new divinities.
 
-Apollo and Athene and the priestess ignore the divinity of the ancient ones, but there is one of the dramatis personae who knows perfectly who and what the Furies are and is not ashamed of it. The real truth is put in just the lips that will most discredit it. Clytemnestra knows the Erinyes and has worshipped them with the precise ritual of the [GREEK], the [GREEK], the [GREEK], _i. e._ with the [GREEK], the [GREEK], offered by night [GREEK], offered on the [GREEK], the low hero-altar.
+Apollo and Athene and the priestess ignore the divinity of the ancient ones, but there is one of the dramatis personae who knows perfectly who and what the Furies are and is not ashamed of it. The real truth is put in just the lips that will most discredit it. Clytemnestra knows the Erinyes and has worshipped them with the precise ritual of the χθόνιοι, the Δημήτριοι, the ἥρωες, _i. e._ with the χοαὶ ἄοινοι, the νηφάλια μειλίγματα, offered by night νυκτίσεμνα δεῖπνα, offered on the ἐσχάρα, the low hero-altar.
 
-[GREEK].
+ἦ πολλὰ μὲν δὴ τῶν ἐμῶν ἐλείξατε  
+χοάς τ᾽ ἀοίνους νηφάλια μειλίγματα,  
+καὶ νυκτίσεμνα δεῖπν᾽ ἐπ᾿ ἐσχάρᾳ πυρὸς  
+ἔθυον, ὥραν οὐδενὸς κοινὴν θεῶν.
 
-Even Clytemnestra is made to imply that there was something shameful in the service by night, [GREEK]. Clytemnestra as we have already seen knows that the true vehicle of the Erinys is the earth snake, the [GREEK]; but she goes with the times and adopts the splendid imagery of the dog hunting in dreams.
+Even Clytemnestra is made to imply that there was something shameful in the service by night, πότνια Νύξ. Clytemnestra as we have already seen knows that the true vehicle of the Erinys is the earth snake, the δεινὴ δράκαινα; but she goes with the times and adopts the splendid imagery of the dog hunting in dreams.
 
-[GREEK].
+ὄναρ διώκεις θῆρα, κλαγγάνεις δ᾽ ἅπερ  
+κύων μέριμναν οὔποτ᾽ ἐκλιπὼν πόνου.
 
 The image of the dog was of course especially useful to anyone who wanted to vilify the Erinyes.
 
 The conclusive proof to my mind that Aeschylus knew perfectly well who the Erinyes were, is the simple fact that he turned them in the end into Semnae and restored all their ancient functions. This is the very acme of theological duplicity or --- simplicity. Even an Athenian must have found it hard to believe that for the privilege of living in a cave on the Areopagos the Furies were ready to change in a moment their whole vindictive nature and become the ministrants of
 
-[GREEK]. --- 903-909.
+ὁποῖα νίκης μὴ κακῆς ἐπίσκοπα,  
+καὶ ταῦτα γῆθεν ἔκ τε ποντίας δρόσου  
+ἐξ οὐρανοῦ τε κἀνέμων ἀήματα,  
+εὐηλίως πνέοντ᾽ ἐπιστείχειν χθόνα·  
+καρπόν τε γαίας καὶ βοτῶν ἐπίρρυτον  
+ἀστοῖσιν εὐθενοῦντα μὴ κάμνειν χρόνῳ.  
+καὶ τῶν βροτείων σπερμάτων σωτηρίαν. --- 903-909.
 
-At Megalopolis it would have been simply impossible to play the piece. An audience at Megalopolis would have risen in a body and cried out, why these are our own Maniae, the black and white ones. It is noticeable that as soon as the [GREEK] have been satisfactorily metamorphosed into Semnae, _i. e._ when the chorus has said:
+At Megalopolis it would have been simply impossible to play the piece. An audience at Megalopolis would have risen in a body and cried out, why these are our own Maniae, the black and white ones. It is noticeable that as soon as the ἀπόπτυστοι κόραι have been satisfactorily metamorphosed into Semnae, _i. e._ when the chorus has said:
 
-[GREEK]. --- 916.
+δέξομαι Παλλάδος ξυνοικίαν. --- 916.
 
 Athene is less guarded in speech and sentiment. She frankly calls the Erinyes, Erinyes, and gives a very complete and satisfactory account, scarcely tallying with her previous ignorance of their nature and functions
 
-[GREEK]. --- _Eum._ 951.
+μέγα γὰρ δύναται  
+πότνι᾽ Ἐρινὺς παρά τ᾽ ἀθανάτοις  
+τοῖς θ᾽ ὑπὸ γαῖαν περί τ᾿ ἀνθρώπων  
+φανερῶς τελέως διαπράσσουσιν,  
+τοῖς μὲν ἀοιδὰς τοῖς δ᾽ αὖ δακρύων  
+βίον ἀμβλωπὸν παρέχουσαι. --- _Eum._ 951.
 
 In the background of the play always, in the foreground sometimes, there is the conflict of cults. It is not over one individual that Apollo and the Erinyes contend, and this they well remember. There was the parallel case of Alcestis which they aptly quote (v. 723)
 
-[GREEK].
+τοιαῦτ᾽ ἔδρασας καὶ Φέρητος ἐν δόμοις·  
+Μοίρας ἔπεισας ἀφθίτους θεῖναι βροτούς.
 
-The Moirae, and who are they? only as we have already seen another of the [GREEK]. This is clearly brought out in
+The Moirae, and who are they? only as we have already seen another of the κληδόνες ἐπώνυμοι. This is clearly brought out in
 
-[GREEK]. --- _Eum._ 172.
+παλαιγενεῖς δὲ Μοίρας φθίσας. --- _Eum._ 172.
 
 The cultus conflict is also most clearly brought out in the plaint of the Erinyes, that a grievous innovation has been attempted in matters of ritual,
 
-[GREEK]. --- _Eum._ 727.
+σύ τοι παλαιὰν διανομὴν καταφθίσας  
+οἴνῳ παρηπάτησας ἀρχαίας θεάς. --- _Eum._ 727.
 
-It is the last outrage, despite is done to the ancient ritual of the [GREEK], that dated back to days before the vine-god came, when men drank mead. Such was the ritual at Colonos.
+It is the last outrage, despite is done to the ancient ritual of the νηφάλια, that dated back to days before the vine-god came, when men drank mead. Such was the ritual at Colonos.
 
-[GREEK]. --- Soph. _Oed. Col._ 480.
+τοῦ τόνδε πλήσας θῶ; δίδασκε καὶ τόδε.  
+ὕδατος, μελίσσης· μηδὲ προσφέρειν μέθυ. --- Soph. _Oed. Col._ 480.
 
 And again,
 
-[GREEK]. --- _Oed. Col._ v. 100.
+πρώταισιν ὑμῖν ἀντέκυρσ᾽ ὁδοιπορῶν  
+νήφων ἀοίνοις. --- _Oed. Col._ v. 100.
 
 The Eumenides is based on the great racial reality of a conflict of cults, but to Aeschylus the interest of his plot was that it was a conflict of ideals. Naturally he did not, could not know that in his veins ran the blood of two different races, with alien habits of religious thought. He was all for Zeus and King Apollo, the Father and the Son, with such unification of will and purpose that their religion was practically a monotheism, but he had to reckon with, to reconcile at all costs the ancient cult of the earth goddesses. The ideal of the Erinyes was the ideal of all primitive moralities, an eye for an eye, and above all the indissolubility of the bond of physical kinship, especially through the mother. Aeschylus could not be expected to see that the system was necessary and highly beneficial in its day and that its passing was attended with grave social dangers. He fastens on the harsh side of it, its implacability, its endlessness
 
-[GREEK].
+βοᾷ γὰρ λοιγὸν Ἐρινύς  
+παρὰ τῶν πρότερον φθιμένων ἄτην  
+ἑτέραν ἐπάγουσαν ἐπ᾽ ἄτῃ.
 
 He is all for the new ideal of atonement, for Apollo Katharsios --- in itself an advance, destined of course in its turn to pass. It is impossible to avoid a regret that he stooped to the cheap expedient of blackening his opponents. That in doing so he was in part self-deceived only makes of the 'Eumenides' a still more human document.
