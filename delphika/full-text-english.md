@@ -380,44 +380,46 @@ Kassandra was a priestess of Gaia Phoebe, hence her official name was ἡ Φοι
 
 Kassandra was prophetess at the βωμός-omphalos (Gerhard, _A. V._ 220) of Thymbrae, a shrine taken over by Apollo as he took Delphi. The frenzy of Kassandra against Apollo is more than the bitterness of maiden betrayed, it is wrath of the prophetess of the older order discredited, despoiled:
 
-[GREEK].
+καὶ νῦν ὀ μάντις μάντιν ἐκπράξας ἐμέ.
 
-Finally to clinch the argument there is the [GREEK], the dream-portent of the _Choephoroi_ (v. 32)
+Finally to clinch the argument there is the φοῖβος, the dream-portent of the _Choephoroi_ (v. 32)
 
-[GREEK]
+τορὸς γὰρ φοῖβος ὀρθόριξ  
+δόμων ὀνειρόμαντις
 
-which Dr. Verrall (_Choephor. ad_ v. 32) upholds against the emendation [GREEK]. The dream portent is of the very essence of the cult of Phoebe and this dream portent is the ancestral Erinys, _i. e._ in very truth [GREEK].
+which Dr. Verrall (_Choephor. ad_ v. 32) upholds against the emendation φόβος. The dream portent is of the very essence of the cult of Phoebe and this dream portent is the ancestral Erinys, _i. e._ in very truth δόμων ὀνειρόμαντις.
 
-To return to the [GREEK], the Pseudo-Orphic writers no doubt thought it got its name from Apollo, but it seems at least probable that Phoebe or Phoebus, her male correlative, had a prophetic, kathartic stone long before. Whether it ever actually surmounted the omphalos it is of course impossible to say; the [GREEK] of Hesiod looks like a formal setting up. Anyhow the point I plead for is the close analogy and association of the [GREEK] and the [GREEK]; in the light of the vase-painting in Fig. 7, and the [GREEK], it seems to me at least possible that the two once formed one monument in the relation of [GREEK] and [GREEK].
+To return to the φοιβήτωρ λᾶας, the Pseudo-Orphic writers no doubt thought it got its name from Apollo, but it seems at least probable that Phoebe or Phoebus, her male correlative, had a prophetic, kathartic stone long before. Whether it ever actually surmounted the omphalos it is of course impossible to say; the στήριξε of Hesiod looks like a formal setting up. Anyhow the point I plead for is the close analogy and association of the Κρόνου λίθος and the Γῆς ὀμφαλός; in the light of the vase-painting in Fig. 7, and the Δακτύλου μνῆμα, it seems to me at least possible that the two once formed one monument in the relation of τύμβος and στήλη.
 
-Some slight additional probability is added to this view when we consider that the omphalos certainly was moved. If my theory is right it must have begun as an actual tomb somewhere in what is now the precinct of Gaia near the Styx-Cassotis well and the rock of the Sibyl. In the time of Aeschylus and Euripides, it was undoubtedly in the temple of Apollo. The actual grave mound could not be moved as a grave, but if it was a mound plastered with [GREEK] and if its significance had been lost, it could easily be copied on marble and the marble copy carried to the temple. The omphalos in the time of Pausanias stood, there is little doubt, on the terrace in _front_ of the temple, and there the actual omphalos discovered by the French was found.* This omphalos is obviously a copy of the real cultus object, for the fillets are copied in stone; the original omphalos would of course, like the Kronos stone, be covered with the real woollen fillets. If the omphalos was so freely moved about the like fate may have overtaken the stone of Kronos; it would be smaller and easier to move. In the place where Pausanias saw it, it had no special significance, its proper home was the precinct of Gaia. The incoming worshippers of Apollo were obliged to tolerate and even venerate Gaia, but Kronos being a male god would have been an inconvenient rival to Apollo, and hence everywhere the worship of Kronos became obscured, though even down to the days of Lycophron the tradition that he first held the oracle at Delphi survived.
+Some slight additional probability is added to this view when we consider that the omphalos certainly was moved. If my theory is right it must have begun as an actual tomb somewhere in what is now the precinct of Gaia near the Styx-Cassotis well and the rock of the Sibyl. In the time of Aeschylus and Euripides, it was undoubtedly in the temple of Apollo. The actual grave mound could not be moved as a grave, but if it was a mound plastered with λεύκωμα and if its significance had been lost, it could easily be copied on marble and the marble copy carried to the temple. The omphalos in the time of Pausanias stood, there is little doubt, on the terrace in _front_ of the temple, and there the actual omphalos discovered by the French was found.* This omphalos is obviously a copy of the real cultus object, for the fillets are copied in stone; the original omphalos would of course, like the Kronos stone, be covered with the real woollen fillets. If the omphalos was so freely moved about the like fate may have overtaken the stone of Kronos; it would be smaller and easier to move. In the place where Pausanias saw it, it had no special significance, its proper home was the precinct of Gaia. The incoming worshippers of Apollo were obliged to tolerate and even venerate Gaia, but Kronos being a male god would have been an inconvenient rival to Apollo, and hence everywhere the worship of Kronos became obscured, though even down to the days of Lycophron the tradition that he first held the oracle at Delphi survived.
 
-[GREEK].
+οἱ δ᾽ ἀμφὶ βωμὸν τοῦ προμάντιος Κρόνου.
 
-On which the scholiast (_ad_ v. 200): [GREEK].
+On which the scholiast (_ad_ v. 200): οἱ δὲ ἀντὶ τοῦ Κρόνου, καί φασιν ὅτι τὸ ἐν Δελφοῖς μαντεῖον πρότερον τοῦ Κρόνου ἦν, ἔνθα ἔλαβον τὸν χρησμὸν οἱ Ἕλληνες ὅτι τῷ δεκάτῳ ἔτει τὸ Ἴλιον πορθήσουσι.
 
 *) _Bull. Corr. Hell._ 1894, p. 180; _Pausanias_ v. p. 318. This omphalos is as yet unpublished but by the kindness of M. Homolle I have been able to see a photograph. It is of white marble, decorated with marble tainiae and from the unwrought condition of the base was evidently sunk in the ground.
 
-It remains to say a word as to the primary meaning of the term _omphalos_; as I am no philologist, I can only approach the question from the point of view of tradition and usage, In the _Iliad_ [GREEK] is used to mean a. the actual navel of the human body (_Iliad_ 4. 525, 13. 568), b. the boss of a shield; there is no necessary implication that the [GREEK] is a central point except in so far as anything dome-shaped has necessarily a centre; the idea seems to be that of _bossiness_. In the _Odyssey_ the word occurs once only (_Od._ 1, 50); Calypso is said to live
+It remains to say a word as to the primary meaning of the term _omphalos_; as I am no philologist, I can only approach the question from the point of view of tradition and usage, In the _Iliad_ ὀμφαλός is used to mean a. the actual navel of the human body (_Iliad_ 4. 525, 13. 568), b. the boss of a shield; there is no necessary implication that the ὀμφαλός is a central point except in so far as anything dome-shaped has necessarily a centre; the idea seems to be that of _bossiness_. In the _Odyssey_ the word occurs once only (_Od._ 1, 50); Calypso is said to live
 
-[GREEK],
+Νήσῳ ἐν ἀμφιρύτῃ ὅθι τ᾽ ὀμφαλός ἐστι θαλάσσης,
 
 'in a seagirt isle where is the navel of the sea.'
 
-Liddell and Scott say that the order of significance is as follows: 1. the navel, umbilicus, 2. anything like a navel or boss... umbo, 3. a centre or middle point, so in _Od._ 1, 50, and by a later legend Delphi (or rather a round stone in the Delphic temple) was called [GREEK] _as marking the middle point of the earth_, first in Pind. _P._ 4, 131. This sort of loose statement is only tolerated where archaeology is concerned. There is nothing whatever in _Od._ 1. 50 to imply that Calypso dwelt in the middle of the sea. Anyone who has looked at a solitary island on an expanse of level sea, has seen it rise boss-like from the level of the sea; if the sea is human an island is its omphalos. If the land is human, is Gaia, the grave mound is its omphalos. Later, when mankind concerns itself with theories, cosmical and geometrical, a naive local egotism sees in the navel of Gaia the centre of the universe, and stories grow up about eagles meeting in their flight.
+Liddell and Scott say that the order of significance is as follows: 1. the navel, umbilicus, 2. anything like a navel or boss... umbo, 3. a centre or middle point, so in _Od._ 1, 50, and by a later legend Delphi (or rather a round stone in the Delphic temple) was called ὀμφαλός _as marking the middle point of the earth_, first in Pind. _P._ 4, 131. This sort of loose statement is only tolerated where archaeology is concerned. There is nothing whatever in _Od._ 1. 50 to imply that Calypso dwelt in the middle of the sea. Anyone who has looked at a solitary island on an expanse of level sea, has seen it rise boss-like from the level of the sea; if the sea is human an island is its omphalos. If the land is human, is Gaia, the grave mound is its omphalos. Later, when mankind concerns itself with theories, cosmical and geometrical, a naive local egotism sees in the navel of Gaia the centre of the universe, and stories grow up about eagles meeting in their flight.
 
-That is one side of the question, but the ancients themselves conjectured another meaning. The scholiast on Eurip. _Orestes_ 321 says, [GREEK], and more decisively and polemically Cornutus (_de Nat. Deor._ 128.), [GREEK]. The word [GREEK] means especially a divine oracular utterance, and it seems possible that the two notions of the speaking oracular mound or stone and the boss-navel blended; which was prior to the other, is hard to say, but I am inclined to give precedence to the speaking mound, _i. e._ the [GREEK] derivation.
+That is one side of the question, but the ancients themselves conjectured another meaning. The scholiast on Eurip. _Orestes_ 321 says, ὀμφαλὸς λέγεται ἡ Πυθὼ παρὰ τὸ τὰς ὀμφὰς τὰς ὑπὸ θεοῦ χρηστηριαζόμενος λέγειν, and more decisively and polemically Cornutus (_de Nat. Deor._ 128.), ἐλέχθη δὲ καὶ ὁ τόπος ὀμφαλὸς τῆς γῆς οὐχ ὡς μεσαίτατος ὢν αὐτῆς ἀλλ᾽ ἀπὸ τῆς ἀναδιδομένης ἐν αὐτῷ ὀμφῆς ἥτις ἐστὶ θεία φωνή. The word ὀμφή means especially a divine oracular utterance, and it seems possible that the two notions of the speaking oracular mound or stone and the boss-navel blended; which was prior to the other, is hard to say, but I am inclined to give precedence to the speaking mound, _i. e._ the ὀμφή derivation.
 
-For this reason. The notion of the boss, the navel, though it did not necessarily involve, yet early, as we have seen, led on to the notion of centrality. The notion of centrality is much mixed up with ideas of the central hearth, the [GREEK], and the Hestia-Vesta conception seems to me to belong to a later order of conception than that of Gaia-Erinys, the order of Zeus and Apollo. It is noticeable that in the Rig Veda (2. 333, Wilson) we have 'mighty Agni --- the Fire-god --- stationed at the Navel of the Earth... I ask what is the uttermost end of the earth, I ask where is the navel of the world. The altar is the navel of the world. This sacrifice is the navel of the world. Agni is placed by strength upon the navel of the earth.' It is possible that the whole idea of the centre hearth stone came in with the Achaean invasion and Hestia worship. Hestia appears to have assimilated Gaia, at least, in the cosmogony of the [GREEK]:
+For this reason. The notion of the boss, the navel, though it did not necessarily involve, yet early, as we have seen, led on to the notion of centrality. The notion of centrality is much mixed up with ideas of the central hearth, the μεσόμφαλος ἑστία, and the Hestia-Vesta conception seems to me to belong to a later order of conception than that of Gaia-Erinys, the order of Zeus and Apollo. It is noticeable that in the Rig Veda (2. 333, Wilson) we have 'mighty Agni --- the Fire-god --- stationed at the Navel of the Earth... I ask what is the uttermost end of the earth, I ask where is the navel of the world. The altar is the navel of the world. This sacrifice is the navel of the world. Agni is placed by strength upon the navel of the earth.' It is possible that the whole idea of the centre hearth stone came in with the Achaean invasion and Hestia worship. Hestia appears to have assimilated Gaia, at least, in the cosmogony of the σοφοὶ:
 
-[GREEK]. --- Eurip. _Frg._ 938.
+καὶ Γαῖα μῆτερ, Ἐστίαν δέ σ᾽ οἱ σοφοὶ  
+βροτῶν καλοῦσιν, ἡμένην ἐν αἰθέρι. --- Eurip. _Frg._ 938.
 
 and Ovid says (_Fasti_ 6. 266),
 
 Vesta eadem est et Terra subest vigil ignis utrique  
 Significat sedem terra focusque suam.
 
-Cornutus, it will be remembered, gives a conjoint chapter to Demeter and Hestia (Cornut. _de nat. Deor._ 28.) remarking with more truth than he was aware of, [GREEK]. In fact, theology, after articulating the [GREEK] into the [GREEK], usually resumes them into the [GREEK], hence _mutatis mutandis_ late philosophizing authors are often of considerable use in understanding primitive conditions. An Orphic hymn is nearer to primitive conceptions than the clear outlines of Homer. With the omphalos, as with the Erinyes, the difficulty lies chiefly in the analytic habit of our own minds, our determined and exclusive discriminations. We discuss endlessly whether the omphalos was a tomb, an altar, a sanctuary of Gaia, a fetish stone of Kronos, a [GREEK], an [GREEK], when the real solution to all our difficulties is that it was each and all.
+Cornutus, it will be remembered, gives a conjoint chapter to Demeter and Hestia (Cornut. _de nat. Deor._ 28.) remarking with more truth than he was aware of, ἑκατέρα δ᾽ ἔοικεν οὐχ ἑτέρα τῆς γῆς εἶναι. In fact, theology, after articulating the ἕν into the πολλά, usually resumes them into the ἕν, hence _mutatis mutandis_ late philosophizing authors are often of considerable use in understanding primitive conditions. An Orphic hymn is nearer to primitive conceptions than the clear outlines of Homer. With the omphalos, as with the Erinyes, the difficulty lies chiefly in the analytic habit of our own minds, our determined and exclusive discriminations. We discuss endlessly whether the omphalos was a tomb, an altar, a sanctuary of Gaia, a fetish stone of Kronos, a μαντεῖον, an εἰκών, when the real solution to all our difficulties is that it was each and all.
 
 I have kept to the end the interesting question of the attitude of Aeschylus towards this ancient ghost and Gaia cult, the Erinyes and the omphalos. How far was he conscious that the Erinyes were ghosts and snakes? Did he know the omphalos was a tomb? If he knew all this, how far did he, to subserve a theological purpose, intentionally conceal his knowledge?
 
@@ -431,45 +433,61 @@ In a parenthesis it must be noted that any mythological investigation should end
 
 4\. Die Kunstdenkmäler.
 
-The true order is first cultus, which shows us to what order of beings the mythological figures in question belong, _i. e._ how they were conceived of by their worshippers. Next should come the minor arts --- vase-paintings and the like --- because these, though not free from literary influence, are less under the dominance of Homer than _e. g._ the tragedies of Aeschylus --- Aeschylus who boasted that his dramas were [GREEK] from the heroic banquet. An early black-figured vase will often (_e. g._ Fig. 7) yield up a conception prior to any poetry has left us. Then should follow the name, with the constant proviso that the name, if primitive, will probably be no proper name, but an adjectival cultus appellation. Last will come what is after all the supreme delight of the investigator --- the examination of how far literature embodies primitive conceptions, how far transforms, what ghosts of ancient thought and feeling hover round, present but not consciously evoked. The evil results of Dr. Rosenberg's methods are seen in his first sentence, which strikes the wrong key-note and vitiates his whole investigation. 'Schon Homer bietet uns ein fest umrissenes Bild von dem Walten der Rachegöttinnen.' It is just this 'fest umrissenes Bild' this literary crystallization that does all the mischief.
+The true order is first cultus, which shows us to what order of beings the mythological figures in question belong, _i. e._ how they were conceived of by their worshippers. Next should come the minor arts --- vase-paintings and the like --- because these, though not free from literary influence, are less under the dominance of Homer than _e. g._ the tragedies of Aeschylus --- Aeschylus who boasted that his dramas were τεμάχη from the heroic banquet. An early black-figured vase will often (_e. g._ Fig. 7) yield up a conception prior to any poetry has left us. Then should follow the name, with the constant proviso that the name, if primitive, will probably be no proper name, but an adjectival cultus appellation. Last will come what is after all the supreme delight of the investigator --- the examination of how far literature embodies primitive conceptions, how far transforms, what ghosts of ancient thought and feeling hover round, present but not consciously evoked. The evil results of Dr. Rosenberg's methods are seen in his first sentence, which strikes the wrong key-note and vitiates his whole investigation. 'Schon Homer bietet uns ein fest umrissenes Bild von dem Walten der Rachegöttinnen.' It is just this 'fest umrissenes Bild' this literary crystallization that does all the mischief.
 
-In the case of Aeschylus, it is curious to note that, probably owing to the subject-matter of the two plays, the religious attitude in the _Choephoroi_ and the _Eumenides_ is wholly different and even opposite. In the _Choephoroi_ the theology is at bottom so primitive as to be no theology at all; it is daemonology, ghost-worship centred round a tomb. It is not necessary for me to emphasize this point beyond what I have said at p. 214; for Dr. Verrall, in his edition of the play, the keynote is the [GREEK] (v. 65) the 'avenged blood' of kinsfolk. Earth was literally, physically polluted, and poisoned the murderer --- a notion precisely paralleled by Alcmaeon's story (p. 239). The Earth is Erinys and implacable. But side by side with this, almost indistinguishable from it, is the other thought that the ghost is the Erinys.
+In the case of Aeschylus, it is curious to note that, probably owing to the subject-matter of the two plays, the religious attitude in the _Choephoroi_ and the _Eumenides_ is wholly different and even opposite. In the _Choephoroi_ the theology is at bottom so primitive as to be no theology at all; it is daemonology, ghost-worship centred round a tomb. It is not necessary for me to emphasize this point beyond what I have said at p. 214; for Dr. Verrall, in his edition of the play, the keynote is the τίτας φόνος (v. 65) the 'avenged blood' of kinsfolk. Earth was literally, physically polluted, and poisoned the murderer --- a notion precisely paralleled by Alcmaeon's story (p. 239). The Earth is Erinys and implacable. But side by side with this, almost indistinguishable from it, is the other thought that the ghost is the Erinys.
 
-[GREEK].
+ἄλλας τ᾽ ἐφώνει προσβολὰς Ἐρινύων,  
+ἐκ τῶν πατρῴων αἱμάτων τελουμένας,  
+ὁρῶντα λαμπρὸν ἐν σκότῳ νωμῶντ᾽ ὀφρύν.
 
-'Apparitions of fiends' (I borrow Dr. Verrall's translation) 'brought to effect by that paternal blood, phantoms which the victim, though his eyebrows twitch in the dark, can clearly see.' The '[GREEK]' shows the transition in the mind of Aeschylus; he does not say the phantoms are the ghosts, but they are brought to effect by the murder. As the doctrine is quaintly put in the mouth of Apollo, with whose religion it had nothing to do, perhaps this is as much as dramatic propriety would allow. On the word [GREEK] I would make one remark. Dr. Verrall (_ad v._ 282) explains that [GREEK] signified properly the 'access' of an object to an organ of sense, and _vice versâ_, and hence here comes to mean something practically equivalent to our _apparition_. To cause these [GREEK], or, as they are sometimes called, [GREEK], was also one of the functions of [GREEK], _i. e._ dead men, who here again parallel the Erinyes. [GREEK] (Hippocr. [GREEK], p. 123, 20, v. O. Crusius, _Die Epiphanie der Sirene_, p. 103).
+'Apparitions of fiends' (I borrow Dr. Verrall's translation) 'brought to effect by that paternal blood, phantoms which the victim, though his eyebrows twitch in the dark, can clearly see.' The 'τελουμένας' shows the transition in the mind of Aeschylus; he does not say the phantoms are the ghosts, but they are brought to effect by the murder. As the doctrine is quaintly put in the mouth of Apollo, with whose religion it had nothing to do, perhaps this is as much as dramatic propriety would allow. On the word προσβολάς I would make one remark. Dr. Verrall (_ad v._ 282) explains that προσβολή signified properly the 'access' of an object to an organ of sense, and _vice versâ_, and hence here comes to mean something practically equivalent to our _apparition_. To cause these προσβολαί, or, as they are sometimes called, ἔφοδοι, was also one of the functions of ἥρωες, _i. e._ dead men, who here again parallel the Erinyes. ὁπόσα δὲ δείματα νυκτὸς παρίσταται καὶ φόβοι καὶ παράνοιαι καὶ ἀναπηδήσεις ἐκ κλίνης... Ἑκάτης φασὶν εἶναι ἐπιβουλὰς (? ἐπιβολάς) καὶ ἡρώων ἐφόδους (Hippocr. περὶ ἱερῆς νούσου, p. 123, 20, v. O. Crusius, _Die Epiphanie der Sirene_, p. 103).
 
 I have already noted (p. 214) that Orestes recognizes in the snake the earth daemon, the Erinys of the dead; it is equally clear that to him, his father's tomb, and earth as a sanctuary are thoughts near akin (v. 588)
 
-[GREEK]
+ἀλλ᾽ εὔχομαι γῇ τῇδε καὶ πατρὸς τάφῳ
 
 and again, v. 124,
 
-[GREEK].
+κηρύξας ἐμοὶ  
+τοὺς γῆς ἔνερθε δαίμονας κλύειν ἐμὰς  
+εὐχάς, πατρῴων ὀμμάτων ἐπισκόπους  
+καὶ γαῖαν αὐτὴν ἣ τὰ πάντα τίκτεται  
+θρέψασά τ᾽ αὖθις τῶνδε κῦμα λαμβάνει.
 
 In a word the religion of the _Choephoroi_ is traditional, tribal, inherited, unconscious, profoundly ritualistic. When we turn to the _Eumenides_ the whole attitude is altered, we have a theology conscious, combative, rational, highly moralised, theoretical, with no manner of relation to cultus practices.
 
 As to the general monotheistic tendency of the prologue of the priestess I have little to add to what Dr. Verrall has said (_Euripides the Rationalist_, p. 221). Apollo is preceded by three women divinities, Gaia, Themis and Phoebe. Aeschylus, when he wrote the _Prometheus_, certainly knew that Gaia and Themis were the same (Aesch. _Prom._ 209):
 
-[GREEK].
+ἐμοὶ δὲ μήτηρ οὐχ ἅπαξ μόνον Θέμις  
+καὶ Γαῖα, πολλῶν ὀνομάτων μορφὴ μία.
 
-but as his great desire is to avoid any mention of unseemly conflict between Gaia and Apollo it probably suited his purpose to lengthen out the genealogy. How much he knew of who Phoebe was must remain doubtful. Even Aeschylus did not dare, spite of the analogy of name, to say that Phoebe was related to Apollo; she is [GREEK]. The moment is an anxious one, hence the uneasy comedy of the [GREEK]. At all costs there must be no breach, no mention of the slaying of the serpent.
+but as his great desire is to avoid any mention of unseemly conflict between Gaia and Apollo it probably suited his purpose to lengthen out the genealogy. How much he knew of who Phoebe was must remain doubtful. Even Aeschylus did not dare, spite of the analogy of name, to say that Phoebe was related to Apollo; she is παῖς χθονός. The moment is an anxious one, hence the uneasy comedy of the γενέθλιος δόσις. At all costs there must be no breach, no mention of the slaying of the serpent.
 
 So far all is fairly plain sailing. Beginning with a complete anthropomorphism Aeschylus is not required to take cognizance of ghosts and ancestor worship. There is only the venerable figure of Gaia and the vague transitional but always respectable Titanesses. But the moment has come when the omphalos and the Erinyes must be presented to the audience; how could that be done? As to the omphalos I do not think that Aeschylus had any suspicion of the truth. By his time it had been completely taken over by Apollo, moved out of the Gaia precinct and was probably regarded as a portable cultus object of unknown origin and immense antiquity serving as an altar and mercy seat for suppliants to Apollo. The Erinyes who as we have seen were really resident _in_ it are only conceived of as temporarily camping round it because Orestes has fled there. It is the sacred object of the temple, that is all. I have sought in vain for any passage in Aeschylus which could fairly be taken to show that he took the omphalos to be a tomb, but in one chorus of Sophocles (_O. T._ 469) the thought is at least subconsciously present. For Sophocles Apollo has become the minister of vengeance, not of reconciliation ---
 
-[GREEK].
+ἔνοπλος γὰρ ἐπ᾽ αὐτὸν ἐπενθρώσκει  
+πυρὶ καὶ στεροπαῖς ὁ Διὸς γενέτας.
 
 Here Apollo is but the double of his father Zeus. Yet it is not forgotten who are the ancient avengers though by a mythological inversion they are made subsidiary.
 
-[GREEK],
+δειναὶ δ᾽ ἁμ᾽ ἕπονται  
+Κῆρες ἀναπλάκητοι,
 
-where the name [GREEK] points to the ghost aspect --- the Erinyes. And these [GREEK] haunt the [GREEK]. The Theban elders (_Oed. Tyr._ v. 475) chant the misery and loneliness of the guilty man.
+where the name Κῆρες points to the ghost aspect --- the Erinyes. And these Κῆρες haunt the ὀμφαλός. The Theban elders (_Oed. Tyr._ v. 475) chant the misery and loneliness of the guilty man.
 
-[GREEK].
+Φοιτᾷ γὰρ ὑπ᾽ ἀγρίαν  
+ὕλαν ἀνά τ᾽ ἄντρα καὶ  
+πέτρας ἅτε ταῦρος,  
+μέλεος μελέῳ ποδὶ χηρεύων,  
+τὰ μεσόμφαλα γᾶς ἀπονοσφίζων  
+μαντεῖα· τὰ δ᾽ ἀεὶ  
+ζῶντα περιποτᾶται.
 
-Here Prof. Jebb observes 'The haunting thoughts of guilt are objectively imaged as terrible words ever sounding in the wanderer's ears.' Yes; and I venture to think more than this, the [GREEK] _are_ [GREEK], they are [GREEK], they are [GREEK]. Though the guilty man shuns the actual tomb, _i. e._ the omphalos whence they rise up to haunt him, it is in vain
+Here Prof. Jebb observes 'The haunting thoughts of guilt are objectively imaged as terrible words ever sounding in the wanderer's ears.' Yes; and I venture to think more than this, the μεσόμφαλα γᾶς μαντεῖα _are_ εἴδωλα, they are φοίβαι, they are Ἐρινύων προσβολαί. Though the guilty man shuns the actual tomb, _i. e._ the omphalos whence they rise up to haunt him, it is in vain
 
-[GREEK].
+τὰ δ᾽ ἀεὶ  
+ζῶντα περιποτᾶται.
 
 I do not say that Sophocles knew the omphalos was a tomb, but I do say that if his ancestors had never believed it this marvellous chorus would never have been written.
 
