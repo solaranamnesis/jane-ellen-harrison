@@ -42,7 +42,8 @@ The material of the following paper falls conveniently under two headings, but t
 
 # A. The Erinyes.
 
-Incertus Geniumne loci famulumne parentis  Esse putet. --- Verg. Aen. v. 95.
+Incertus Geniumne loci famulumne parentis  
+Esse putet. --- Verg. Aen. v. 95.
 
 It will be obvious to anyone conversant with the subject that in two of the steps of my argument I lay no claim to originality. In his remarkable _Dissertations on the Eumenides_ (2nd edition, English, 1853, p. 155) C. O. Müller states distinctly that the Erinyes 'were neither more nor less than a particular form of the great goddesses who rule the earth and the lower world and send up the blessings of the year, namely Demeter and Cora.' This doctrine, with some modification and amplification, is substantially that of my Clause 5.
 
