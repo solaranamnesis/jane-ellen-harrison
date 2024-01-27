@@ -125,7 +125,8 @@ When Clytemnestra hears the snoring of the Furies how does she name them?
 Ὕπνος πόνος τε κύριοι συνωμόται  
 Δεινῆς δρακαίνης ἐξεκήραναν μένος.
 
-Travail and sleep, chartered conspirators,  Have spent the fell rage of the _dragoness_ (v. 126).
+Travail and sleep, chartered conspirators,  
+Have spent the fell rage of the _dragoness_ (v. 126).
 
 Of course it is possible to say that she uses the term δράκαινα 'poetically' for a monster, but the fact remains that she calls the chorus _a dragoness_, when she might quite naturally have called them hounds, as indeed in the next lines she frankly proceeds to do. It would really have been more 'poetical' to preserve the metaphor intact. The passage does not stand alone. To Euripides also a Fury is a δράκαινα.
 
