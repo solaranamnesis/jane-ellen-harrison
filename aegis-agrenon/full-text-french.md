@@ -2,7 +2,7 @@
 
 ## Par Jane Ellen Harrison.
 
-### Bulletin de Correspondance Hellénique.
+### Bulletin de Correspondance Hellénique, Vol. 20.
 
 ### Année 1900.
 
