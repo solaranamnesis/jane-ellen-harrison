@@ -32,7 +32,7 @@ Ici les difficultés, bien connues des éditeurs, disparaissent, si l'on suppose
 
 Heureusement il existe une représentation de l'ἀγρηνόν servant de vêtement. Un torse du Vatican (Fig. 1), publié par Gerhard, _Antike Bildw._, Taf. 84, 3, et reproduit par Saglio, _Dictionnaire des Antiquités_, au mot ἀγρηνόν, nous montre un prêtre portant ce vêtement par-dessus le _chiton_ et sous la _chlamyde_, qui est attachée par une broche ( ? ) en forme de masque. Gerhard voit dans ce torse un prêtre d'Apollon ; il est peut-être plus plausible encore d'y reconnaître, avec M. Saglio, un prêtre de Dionysos ; en tout cas, c'est sans aucun doute un prêtre habillé en _mantis_. M. Saglio note l'analogie de ce vêtement avec le réseau de l'omphalos.
 
-[Fig. 1]()
+[Fig. 1](https://cdn.solaranamnesis.com/JEHarrison/AegisAgrenon/agrenon-fig1.png)
 
 Le lecteur aura deviné ma conclusion : le δίκτυον de l'omphalos n'était autre chose que son ἀγρηνόν, son vêtement ou son manteau de peau de chèvre, son égide, le filet de poil tricoté ou tissé n'étant qu'une transformation adoucie du rude vêtement de peau.
 
@@ -49,7 +49,7 @@ Evidemment cette pierre n'était pas autre chose qu'un omphalos, prononçant des
 
 L'omphalos donc, la pierre qui parle, portait le vêtement du _mantis_. A l'origine, le _mantis_ était simplement vêtu de peau de chèvre comme ses concitoyens, puis, bien longtemps après que ceux-ci eurent adopté des tissus différents, le prophète, suivant les habitudes conservatrices du sacerdoce, garda sa peau de chèvre comme robe de culte. Il est possible aussi qu'il dût porter la peau de l'animal sacrifié, afin de se concilier le dieu, en se confondant autant que possible avec la victime. Voilà au moins ce qui semble avoir été le motif du culte d'Oropos (Paus, 1, 34, 5), selon lequel quiconque voulait consulter Amphiaraos sacrifiait un bélier et se couchait ensuite sur la victime en attendant la révélation du rêve : « κριὸν θύσαντες καὶ τὸ δέρμα ὑποστρωσάμενοι καθεύδουσιν ἀναμένοντες δήλωσιν ὀνείρατος. »
 
-[Fig. 2]()
+[Fig. 2](https://cdn.solaranamnesis.com/JEHarrison/AegisAgrenon/agrenon-fig2.png)
 
 Reste à considérer l'étymologie du mot ἀγρηνόν. Au premier abord, on y pourrait voir la même racine que dans le verbe ἀγρεύω, chasser. Remarquons pourtant que, s'il faut croire Pollux et Hésychius, le mot était exclusivement employé pour désigner une robe ou un vêtement, et ne s'appliquait jamais au filet de chasse. Notons aussi qu'Hésychius cite l'autorité d'Ératosthène pour une forme γρῆνυν ou γρῆνον. Serait-il possible --- je ne suggère celle conjecture qu'en passant --- que cette forme soit la même que γρῖνον, citée par Eustathe comme la forme éolienne de ῥῖνος, peau de bête ? En ce cas, l'α ne serait que _prosthétique_ et le mot ἀγρηνόν signifierait, comme le mot égide, ce qui est fait d'une peau de bête, et aussi le filet ou vêtement fait de poil. Eustathe parle aussi du mot γριπεύς comme ὁ ῥάπτων ἁλιευτικὰ δίκτυα.
 
