@@ -2,6 +2,10 @@
 
 ## Par Jane Ellen Harrison.
 
+### Bulletin de Correspondance Hellénique.
+
+### 1900.
+
 En discutant l'origine de l'omphalos dans le _Journal Hellénique_ (_JHS_, 19, 1899, p. 225) j'avais laissé en dehors de mes observations la couverture de tæniæ, le réseau ou filet, dont il est revêtu dans la plupart des représentations ; je n'avais en effet aucune vue précise sur le sens de cet objet, et je le considérais, faute de mieux, comme simplement décoratif. Mais depuis lors, il m'a semblé trouver une théorie plus probable* ; c'est cette théorie que je me propose de soumettre au jugement des lecteurs du _Bulletin de Correspondance Hellénique_, hommage reconnaissant en vers les excavateurs de Delphes et l'École française, en souvenir de l'accueil généreux et de la bienveillante hospitalité dont j'ai si souvent profité.
 
 *) Elle a été exposée dans une réunion de la Sociéte des Études Grecques à Cambridge le 5 Mai 1900, et elle est résumée dans le _Journal of Hellenic Studies_ (20, p. 44).
