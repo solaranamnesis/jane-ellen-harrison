@@ -59,13 +59,13 @@ First, as regards the number of the Erinyes. In Homer they appear usually in the
 
 ἰὼ μοῖρα βαρυδότειρα μογερὰ  
 πότνιά τ' Οἰδίπου σκιὰ,  
-μέλαιν᾽ Ἐρινὺς, ἦ μεγασθενής τις εἷ. --- Aesch. _Sept._ v. 975.
+μέλαιν' Ἐρινὺς, ἦ μεγασθενής τις εἷ. --- Aesch. _Sept._ v. 975.
 
 Here the Erinys is surely in apposition to the Οἰδίπου σκιά, the εἴδωλον of the dead man. The passage is an instructive _contaminatio_ of two radically different conceptions, the Homeric phantom shadow idea and the powerful local ancestral ghost. The notion of the single Erinys also lurks in the _Eumenides_ of Aeschylus. Aeschylus, of course, has a chorus of Eumenides, the θαυμαστὸς λόχος, and he doubtless conceived of them as indefinitely and Homerically plural, but they are roused from their sleep by Clytemnestra, the _one_ real Erinys.
 
-Another point remains to be emphasised. It is easy enough even to the modern mind to realise that the Erinys was primarily the angry ghost, and a ghost is never so angry as when he has been murdered. The counter-face of the picture is less obvious, _i. e._ the idea that the ghost of the dead man when content is a power that makes for fertility, the chief good to primitive man. The farmer of ancient days had to reckon with his dead ancestors, and was scrupulous to obey the precept _de mortuis nil nisi bene_. Hippocrates (περὶ ἐνυπνίων 2. p. 14) tells us that if anyone saw the dead in a dream dressed in white, and giving something, it was a good omen, ἀπὸ γὰρ τῶν ἀποθανόντων αἱ τροφαὶ καὶ αὐξήσεις καὶ σπέρματα γίνονται. It is this, the good, white side of the ghosts that was suppressed in the Homeric Erinys, but which reemerged at once when they, the Erinyes of Aeschylus, were allowed to become their real selves, _i. e._ the Semnae, potent alike for fertility and sterility. To the priestess in the _Eumenides_ they appear μέλαιναι δ᾽ ἐς τὸ πᾶν βδελύκτροποι, but Athene knows better; she knows that they are practically Moirae, with control over all human weal and woe.
+Another point remains to be emphasised. It is easy enough even to the modern mind to realise that the Erinys was primarily the angry ghost, and a ghost is never so angry as when he has been murdered. The counter-face of the picture is less obvious, _i. e._ the idea that the ghost of the dead man when content is a power that makes for fertility, the chief good to primitive man. The farmer of ancient days had to reckon with his dead ancestors, and was scrupulous to obey the precept _de mortuis nil nisi bene_. Hippocrates (περὶ ἐνυπνίων 2. p. 14) tells us that if anyone saw the dead in a dream dressed in white, and giving something, it was a good omen, ἀπὸ γὰρ τῶν ἀποθανόντων αἱ τροφαὶ καὶ αὐξήσεις καὶ σπέρματα γίνονται. It is this, the good, white side of the ghosts that was suppressed in the Homeric Erinys, but which reemerged at once when they, the Erinyes of Aeschylus, were allowed to become their real selves, _i. e._ the Semnae, potent alike for fertility and sterility. To the priestess in the _Eumenides_ they appear μέλαιναι δ' ἐς τὸ πᾶν βδελύκτροποι, but Athene knows better; she knows that they are practically Moirae, with control over all human weal and woe.
 
-πάντα γὰρ αὗται τὰ κατ᾽ ἀνθρώπους  
+πάντα γὰρ αὗται τὰ κατ' ἀνθρώπους  
 ἔλαχον διέπειν. --- Aesch. _Eum._ 930.
 
 Primitive daemons, it may be observed in passing, are apt to be gods of all work, later they differentiate off into black and white, friendly and hostile, and finally develop a complete departmentalism.
@@ -84,7 +84,7 @@ Nay more in the Eumenides they are the παλαιγενεῖς Μοῖραι (_E
 
 though with Hesiod, never too optimistic in his view, the Κῆρες incline to the black side (v. 211).
 
-Νὺξ δ᾽ ἔτεκε στυγερόν τε Μόρον καὶ Κῆρα μέλαιναν.
+Νὺξ δ' ἔτεκε στυγερόν τε Μόρον καὶ Κῆρα μέλαιναν.
 
 The idea of a ghost, a double, a fate shadowing a man in his life and powerful to affect his descendants after death is common to many primitive peoples. It depends on the temper of the people whether the ghost is regarded as benevolent or malignant, white or black. The West African tribes according to Miss Kingsley have their Eumenides. 'In almost all West African districts' (_West African Studies_, p. 132) 'is a class of spirits called "the well-disposed ones" and this class is clearly differentiated from "them" the generic term for non-human spirits. These well-disposed ones are ancestors, and they do what they can to benefit their particular village or family Fetish, who is not a human spirit nor an ancestor. But the things given to ancestors are gifts not in the proper sense of the word sacrifices, for the well-disposed ones are not gods, even of the rank of a Sasabonsum or an Omburiri' --- here we seem to catch a god arrested in the process of making. The Erinyes of the West African are not angry ancestors, but the ghosts of enemies who are regarded as malevolent --- 'To insult or neglect' the 'well-disposed ones,' is rude and disreputable, but it will not bring on _e. g._ an outbreak of smallpox. African missionaries have found that the nearest equivalent to the word God in our Scriptures is the word 'Mulungu' the general native term for spirit. The spirit of the deceased man is called his Mulungu and all the offerings of the living are presented to such spirits of the dead. 'It is here that we find the great centre of the native religion. The spirits of the dead are the gods of the living.' (Duff MacDonald, _Africana_, 1882, vol. 1. p. 59). As regards the black and white Maniae Mr. Frazer says in his commentary (citing Callaway), 'The Zulus believe that there are black spirits (Itongos) and white spirits; the black spirits cause disease and suffering, but the white spirits are beneficent. The Yakuts think that bad men after death become dark ghosts, but good men become bright ones.' (Paus. 8. 34, 3, Com.)
 
@@ -130,13 +130,13 @@ Have spent the fell rage of the _dragoness_ (v. 126).
 
 Of course it is possible to say that she uses the term δράκαινα 'poetically' for a monster, but the fact remains that she calls the chorus _a dragoness_, when she might quite naturally have called them hounds, as indeed in the next lines she frankly proceeds to do. It would really have been more 'poetical' to preserve the metaphor intact. The passage does not stand alone. To Euripides also a Fury is a δράκαινα.
 
-Πυλάδη δέδορκας τήνδε; τήνδε δ᾽ οὐχ ὁρᾷς  
+Πυλάδη δέδορκας τήνδε; τήνδε δ' οὐχ ὁρᾷς  
 Ἅιδου δράκαιναν, ὥς με βούλεται κτανεῖν  
-δειναῖς ἐχίδναις εἰς ἐμ᾽ ἐστομωμένη; (_Iph. Taur._ 286 f.)
+δειναῖς ἐχίδναις εἰς ἐμ' ἐστομωμένη; (_Iph. Taur._ 286 f.)
 
 Here it may perhaps be urged that the conception is borrowed from Aeschylus, but the stage Furies of Aeschylus were certainly _not δράκαιναι_ and also the Ἅιδου δράκαινα confuses the effect of the δειναὶ ἐχίδναὶ that follow. In the _Orestes_ also (v. 256) the Furies are δρακοντώδεις κόραι and it is surely putting a strain on language to say this means they have snakes in their hands or hair. But the crowning literary illustration on this point is Clytemnestra's dream in the _Choephoroi_. Clytemnestra dreams that she gives birth to and suckles a snake, Dr. Verrall has pointed out (v. 39-41 and 925-927) that the snake was the regular symbol of things subterranean and especially of the grave, and he conjectures that the snake was presented to the minds of the audience by the 'visible grave of Agamemnon, which would presumably be marked as a tomb in the usual way.' This is most true and absolutely essential to the understanding of the play, in fact its keynote, but the snake is more than the symbol of the dead, it is the vehicle of the Erinys, and the Erinys is Orestes, (v. 547):
 
-ἐκδρακοντωθεὶς δ᾽ ἐγὼ  
+ἐκδρακοντωθεὶς δ' ἐγὼ  
 κτείνω νιν,
 
 not merely 'deadly as a serpent,' but as a 'serpent Erinys.' The meaning is obscured to us in two ways; conventionally and traditionally we have come to regard the Erinyes as the pursuers of Orestes, whereas here he, as Erinys, pursues. Moreover the Erinyes are naturally as we have seen female; here by command of the patriarchal Apollo comes the male Erinys. The Erinys was a snake and also as we have abundantly seen a Fate; it is only when the two notions are firmly grasped that the full meaning of Orestes' words appear. Clytemnestra cries for mercy in vain (v. 925):
@@ -183,7 +183,7 @@ The first element to be noted is the εἴδωλον. The primitive inhabitant o
 In the later Erinys form, _i. e._ the typical 'Fury' of Hades in short chiton and hunting boots, another element enters of unmistakable import, _i. e._ the art-type of the goddess Artemis --- the huntress _par excellence_. As soon as the Erinyes develop out of ghosts into avengers the element of pursuit comes in, they lose their double aspect and become all vindictive; they are no longer δράκαιναι but κύνες.
 
 ὄναρ διώκεις θῆρα, κλαγγάνεις δ' ἅπερ  
-κύων μέριμναν οὔποτ᾽ ἐκλιπὼν πόνου (_Eum._ 131).
+κύων μέριμναν οὔποτ' ἐκλιπὼν πόνου (_Eum._ 131).
 
 In late vases which depict the scene of Orestes and the Erinyes, _e. g._ the krater of the Louvre (Baumeister, _Denkmäler_, 2. Fig. 1314) the dress of the Erinyes and that of Artemis is identical, save that Artemis carries her bow and quiver and two lances. This vase, it may be noted, is interesting also from the fact that one of the Erinyes is actually rising out of the ground, only visible from the breast upwards, just like the figure of Gaia. The final form of the Fury on Lower Italy Hades-vases is simply that of a malevolent Artemis.
 
@@ -193,11 +193,11 @@ The red-figured vase in Fig. 6 is of importance in respect to the question of ar
 
 Μαινάδα θυιάδα φοιβάδα λυσσάδα. (Timoth. Frg. 1.)
 
-ἴτε, θοαὶ λύσσης κύνες, ἴτ᾽ εἰς ὄρος. (Eurip. _Bacch._ 975.)
+ἴτε, θοαὶ λύσσης κύνες, ἴτ' εἰς ὄρος. (Eurip. _Bacch._ 975.)
 
 I return to the snake-form. The snake-Erinys is only one aspect of a cultus of earth divinities once widespread in primitive Greece. Half a century ago Gerhard, with an insight extraordinary for his time, divined that practically nearly all the women goddesses of Greece are but modifications of one primitive goddess --- Mother Earth.* He says (_Über Metroon und Göttermutter_, 1849, p. 103): 'Nicht nur für Dia Dione, für Ilithyia und Theia, Themis und Artemis, Tyche und Praxidike, Chryse und Basileia, sondern auch für Demeter und Kora, Aphrodite und Hestia, Hera und Athene lässt, wenn wir nicht irren, diese Behauptung bis zu dem Grad sich durchführen, dass wir in allen diesen Götterinen nur wechselnde Namen und Auffassungen einer und desselben hellenisirten der Gäa gleichgeltenden Erd- und Schöpfungsgötten zu erkennen haben... Von überwiegendster Anwendung ist zur Seite der Göttermutter das Schlangen-symbol, es findet sich fast allen den Göttinen beigesellt die wir als örtlich wechselnde Ausdrücke jener ursprünglichen Göttereinheit erkannten, namentlich der thessalischen und italischen Here, der kekropischen Pallas, der eleusinischen Demeter.' It is strange that a conception so fertile, so illuminating, should have lain barren so long, obscured and paralysed by half a century of sun and moon myths. I only push Gerhard's argument a step further when I urge that the snake was not merely the symbol of the primitive earth daemon, but her actual supposed vehicle. Athene the maiden of Athens is but the anthropomorphised οἰκουρὸς ὄφις who dwelt beneath her shield, she is the μοῖρα of her city, and in the city's extremity she refuses to eat her honey-cake. Cecrops the serpent king is caught half-way in his transformation. We are so accustomed to the lifeless attributive snake of _e. g._ the chryselephantine Athene that we forget the live snake of the Acropolis. The design on a lekythos (Benndorf, _Gr. and Sic. Vas._ 51, 1; Roscher, _Lex._ 2. 979) recalls the live snake in drastic fashion. Kassandra takes refuge at the xoanon of Athene. Athene is represented in the usual (Promachos) fashion, on her shield a snake. But not only has she a painted snake on her shield, a great live snake --- a veritable Erinys --- darts forth from her altar with open jaws to attack Ajax. In like manner, when Philoctetes profanes the sanctuary of Chryse, the vase-painter (Baumeister, Fig. 1479) represents the snake that has bitten him returning complacently to the altar at the feet of the goddess. It is no accidental snake bite, it is the Erinys of the goddess --- _it is the goddess_ again, the οἰκουρὸς ὄφις.
 
-σὺ γὰρ νοσεῖς τόδ᾽ ἄλγος ἐκ θείας τύχης  
+σὺ γὰρ νοσεῖς τόδ' ἄλγος ἐκ θείας τύχης  
 Χρύσης πελασθεὶς φύλακος ὃς τὸν ἀκαλυφῆ  
 σηκὸν φυλάσσει κρύφιος οἰκουρῶν ὄφις. (Soph. _Philoct._ 1325).
 
@@ -206,7 +206,7 @@ _Rev. Arch._ 34. 329, Pl. 12.
 
 The two snakes who slew the sons of Laocoon were assuredly the Erinyes sent forth by Athene --- not originally by Apollo. When they had done their work they disappeared below the earth, ἄμφω ἀιστώθησαν ὑπὸ χθόνα (Q. Smyrn. 12, 480). They were important snakes with special names of their own, Porkis and Chariboia, as the scholiast on Lycophron tells us (_ad Alex._ 347). In like manner the snakes who attempt to slay the infant Heracles are the vehicles of Hera.
 
-Again in the case of Demeter. She became so highly humanized that the snake at Eleusis is well-nigh forgotten, at least as an object of cultus. But a ceremony in which the snake glided into the bosom of the initiated, was an integral part of the mysteries (διέλκεται τοῦ κόλπου τῶν τελουμένων).* On a Roman relief in the Uffizi (Overbeck, _Kunst. Myth._ Taf. 16. 2) near the figure of the seated Demeter a sekos is represented, from which emerges a huge snake, and on one of the Campana reliefs representing a cultus scene at Eleusis a worshipper is represented caressing the snake in the bosom of Demeter (_op. cit._ 16. 10). Of course, as anthropomorphism prevailed, the snake became merely the ἀμφίπολος of the goddess. Strabo (393) says, ἀφ᾽ οὗ δὲ καὶ Κυχρείδης ὄφις ὅν φησιν Ἡσίοδος τραφέντα ὑπὸ Κυχρέως ἐξελαθῆναι, ὑποδέξασθαι δὲ αὐτὸν τὴν Δήμητρα εἰς Ἐλευσῖνα καὶ γενέσθαι ταύτης ἀμφίπολον. Aelian, in his _De Natura Animalium_ (11. 2), gives us an important, and, for our purpose, most interesting account of snake worship in Epirus. The passage is so instructive it must be cited in full. 'Θύουσι δὲ καὶ ἄλλως οἱ Ἠπειρῶται τῷ Ἀπόλλωνι καὶ αὐτοὶ καὶ πᾶν ὅσον τῶν ξένων ἐπίδημόν ἐστι, καὶ τούτῳ ἤδη τὴν μεγίστην ἑορτὴν ἄγουσι μιᾶς ἡμέρας τοῦ ἔτους σεμνήν τε καὶ μεγαλοπρεπῆ. Ἔστι δὲ ἄνετον τῷ θεῷ ἄλσος, καὶ ἔχει κύκλῳ περίβολον, καὶ ἔνδον εἰσὶ δράκοντες, τοῦ θεοῦ ἄθυρμα οὗτοί γε. Ἡ τοίνυν ἱέρεια γυμνὴ παρθένος πάρεισι μόνη καὶ τροφὴν τοῖς δράκουσι κομίζει. Λέγονται δὲ ἄρα ὑπὸ τῶν Ἠπειρωτῶν ἔκγονοι τοῦ ἐν Δελφοῖς Πύθωνος εἶναι. Ἐὰν μὲν οὖν οὗτοι παρελθοῦσαν τὴν ἱέρειαν προσηνῶς θεάσωνται καὶ τὰς τροφὰς προθύμως λάβωσιν εὐθενίαν τε ὑποδηλοῦν ὁμολογοῦνται καὶ ἔτος ἄνοσον, ἐὰν δὲ ἐκπλήξωσι μὲν αὐτὴν, μὴ λάβωσι δὲ ὅσα ὀρέγει μειλέγματα, τἀναντία τῶν προειρημένων μαντεύονται.' Here we have a sacred snake, not slain as at Delphi, but taken on peaceably as the ἄθυρμα of Apollo. The snake has a maiden for a priestess, the omen is by food, as in the case of the οἰκουρὸς ὄφις of Athene Parthenos. Most interesting of all, for the moment, is the fact that the nation of Epirus recognized the kinship between their own sacred snake and that at Delphi. So that here we have suggested exactly what the argument most wants, _i. e._ the snake form of the Erinys, the earth goddess at Delphi. The truth has long been disguised by the fact, that, probably at the coming of Apollo, the Delphic snake changed from female to male, possibly that Apollo might have a foeman more 'worthy of his steel,' but the ὄφις γῆς παῖς, the ancient mantic serpent, Gaia's vehicle, would doubtless at the outset be female. The Homeric hymn (v. 300) has δράκαινα, Euripides (_Iph. T._ 1245) has ποικιλόνωτος οἰνωπὸς δράκων. The snake was doubtless, as in Epirus, the actual original oracle-giver, later it became merely the guardian. Apollodorus (1. 4, 1, 2) says, as ὡς δὲ ὁ φρουρῶν τὸ μαντεῖον Πύθων ὄφις ἐκώλυεν αὐτον (Ἀπόλλωνα) παρελθεῖν ἐπὶ τὸ χάσμα, τοῦτον ἀνελὼν τὸ μαντεῖον παραλαμβάνει, and Pausanias (10. 6, 6) says of the Python ἐπὶ τῷ μαντείῳ φύλακα ὑπὸ Γῆς τετάχθαι.
+Again in the case of Demeter. She became so highly humanized that the snake at Eleusis is well-nigh forgotten, at least as an object of cultus. But a ceremony in which the snake glided into the bosom of the initiated, was an integral part of the mysteries (διέλκεται τοῦ κόλπου τῶν τελουμένων).* On a Roman relief in the Uffizi (Overbeck, _Kunst. Myth._ Taf. 16. 2) near the figure of the seated Demeter a sekos is represented, from which emerges a huge snake, and on one of the Campana reliefs representing a cultus scene at Eleusis a worshipper is represented caressing the snake in the bosom of Demeter (_op. cit._ 16. 10). Of course, as anthropomorphism prevailed, the snake became merely the ἀμφίπολος of the goddess. Strabo (393) says, ἀφ' οὗ δὲ καὶ Κυχρείδης ὄφις ὅν φησιν Ἡσίοδος τραφέντα ὑπὸ Κυχρέως ἐξελαθῆναι, ὑποδέξασθαι δὲ αὐτὸν τὴν Δήμητρα εἰς Ἐλευσῖνα καὶ γενέσθαι ταύτης ἀμφίπολον. Aelian, in his _De Natura Animalium_ (11. 2), gives us an important, and, for our purpose, most interesting account of snake worship in Epirus. The passage is so instructive it must be cited in full. 'Θύουσι δὲ καὶ ἄλλως οἱ Ἠπειρῶται τῷ Ἀπόλλωνι καὶ αὐτοὶ καὶ πᾶν ὅσον τῶν ξένων ἐπίδημόν ἐστι, καὶ τούτῳ ἤδη τὴν μεγίστην ἑορτὴν ἄγουσι μιᾶς ἡμέρας τοῦ ἔτους σεμνήν τε καὶ μεγαλοπρεπῆ. Ἔστι δὲ ἄνετον τῷ θεῷ ἄλσος, καὶ ἔχει κύκλῳ περίβολον, καὶ ἔνδον εἰσὶ δράκοντες, τοῦ θεοῦ ἄθυρμα οὗτοί γε. Ἡ τοίνυν ἱέρεια γυμνὴ παρθένος πάρεισι μόνη καὶ τροφὴν τοῖς δράκουσι κομίζει. Λέγονται δὲ ἄρα ὑπὸ τῶν Ἠπειρωτῶν ἔκγονοι τοῦ ἐν Δελφοῖς Πύθωνος εἶναι. Ἐὰν μὲν οὖν οὗτοι παρελθοῦσαν τὴν ἱέρειαν προσηνῶς θεάσωνται καὶ τὰς τροφὰς προθύμως λάβωσιν εὐθενίαν τε ὑποδηλοῦν ὁμολογοῦνται καὶ ἔτος ἄνοσον, ἐὰν δὲ ἐκπλήξωσι μὲν αὐτὴν, μὴ λάβωσι δὲ ὅσα ὀρέγει μειλέγματα, τἀναντία τῶν προειρημένων μαντεύονται.' Here we have a sacred snake, not slain as at Delphi, but taken on peaceably as the ἄθυρμα of Apollo. The snake has a maiden for a priestess, the omen is by food, as in the case of the οἰκουρὸς ὄφις of Athene Parthenos. Most interesting of all, for the moment, is the fact that the nation of Epirus recognized the kinship between their own sacred snake and that at Delphi. So that here we have suggested exactly what the argument most wants, _i. e._ the snake form of the Erinys, the earth goddess at Delphi. The truth has long been disguised by the fact, that, probably at the coming of Apollo, the Delphic snake changed from female to male, possibly that Apollo might have a foeman more 'worthy of his steel,' but the ὄφις γῆς παῖς, the ancient mantic serpent, Gaia's vehicle, would doubtless at the outset be female. The Homeric hymn (v. 300) has δράκαινα, Euripides (_Iph. T._ 1245) has ποικιλόνωτος οἰνωπὸς δράκων. The snake was doubtless, as in Epirus, the actual original oracle-giver, later it became merely the guardian. Apollodorus (1. 4, 1, 2) says, as ὡς δὲ ὁ φρουρῶν τὸ μαντεῖον Πύθων ὄφις ἐκώλυεν αὐτον (Ἀπόλλωνα) παρελθεῖν ἐπὶ τὸ χάσμα, τοῦτον ἀνελὼν τὸ μαντεῖον παραλαμβάνει, and Pausanias (10. 6, 6) says of the Python ἐπὶ τῷ μαντείῳ φύλακα ὑπὸ Γῆς τετάχθαι.
 
 *) For classical references on the snake in the mysteries, _v._ Dieterich, _Abraxas_, pp. 114 and 149.
 
@@ -214,7 +214,7 @@ The existence of snake-worship is further most clearly shown by the festival of 
 
 τοῦ δὲ διαμελεϊστὶ δαΐζειν ἐννέα μοίρας,  
 τρεῖς μὲν ἐπικλήζειν πανδέρκεος ἠελίοιο,  
-τρεῖς δ᾽ ἑτέρας γαίης ἐριβώλου λαοβοτείρης,  
+τρεῖς δ' ἑτέρας γαίης ἐριβώλου λαοβοτείρης,  
 τρεῖς δὲ θεοπροπίης πολυίδμονος ἀψεύστοιο·
 
 where the portion for earth, and the mantic intent are germane to the cultus at Delphi.
@@ -236,7 +236,7 @@ Hippolytus mentions conjointly ὄφις and ὀμφαλός. I have discussed t
 τύμβος τε στήλη τε· τὸ γὰρ γέρας ἐστὶ θανόντων. --- Hom. _Il._ 16. 457.
 
 μηδὲ νεκρῶν ὡς φθιμένων χῶμα νομιζέσθω  
-τύμβος σᾶς ἀλόχου, θεοῖσι δ᾽ ὁμοίως  
+τύμβος σᾶς ἀλόχου, θεοῖσι δ' ὁμοίως  
 τιμᾶσθω. --- Eur. _Alc._ 995.
 
 The Erinyes were primarily ghosts; the omphalos was their sanctuary, the grave they haunted. That in brief is the proposition before us.
@@ -269,31 +269,31 @@ Another vase hitherto unpublished and also in the Naples Museum adds a new featu
 
 *) My grateful thanks are due to Signor Da Petra, the Director of the Naples Museum, for his permission to publish this and the vase in Figs. 7, 8, and also to Miss Amy Hutton who kindly superintended the necessary photographs. The drawing in Fig. 9 was made under considerable difficulties by Mr. Anderson.
 
-This much is clear, that some ceremony is being enacted at a tomb between two men, and presumably the ceremony is of the nature of a pact ratified by an oath. It is quite consonant with Greek habits of thought that oaths should be taken at the tomb of an ancestor, but I am unable to recall any definite instance. Prof. Ridgeway kindly reminds me that such was the regular practice among the Libyan tribe of the Nasamones. Herodotus 4. 172 notes their use of tombs for oaths and dream-oracles. Ὁρκίοισι δὲ καὶ μαντικῇ χρέωνται τοιῇδε· ὀμνύουσι μὲν τοὺς παρὰ σφίσι ἄνδρας δικαιοτάτους καὶ ἀρίστους λεγομένους γενέσθαι τούτους τῶν τύμβων ἁπτόμενοι. μαντεύονται δὲ ἐπὶ τῶν προγόνων φοιτέοντες τὰ σήματα καὶ κατευξάμενοι ἐπικατακοιμῶνται· τὸ δ᾽ ἂν ἴδῃ ἐν τῇ ὄψι ἐνύπνιον τούτῳ χρᾶται. Here the oath is by the laying hold of the tomb, and probably this is a more primitive form than the mere uplifting of the sword. It may be urged that as Herodotus specially notes the custom, it must have been foreign to Greek practice, but this argument will not hold, as he mentions the dream-oracle also and seems unaware that the dream-oracles of the heroes, Amphilochos, Amphiaraos and Asklepios, are cases exactly analogous. It will not be forgotten that the ancient oracles of Gaia at Delphi are of the order of dream-oracles sent by Night which Euripides by a probably wilful inversion represents as innovations. Long after the coming of Apollo men still like the Nasamones slept on the ground that they might hear earth's voice.
+This much is clear, that some ceremony is being enacted at a tomb between two men, and presumably the ceremony is of the nature of a pact ratified by an oath. It is quite consonant with Greek habits of thought that oaths should be taken at the tomb of an ancestor, but I am unable to recall any definite instance. Prof. Ridgeway kindly reminds me that such was the regular practice among the Libyan tribe of the Nasamones. Herodotus 4. 172 notes their use of tombs for oaths and dream-oracles. Ὁρκίοισι δὲ καὶ μαντικῇ χρέωνται τοιῇδε· ὀμνύουσι μὲν τοὺς παρὰ σφίσι ἄνδρας δικαιοτάτους καὶ ἀρίστους λεγομένους γενέσθαι τούτους τῶν τύμβων ἁπτόμενοι. μαντεύονται δὲ ἐπὶ τῶν προγόνων φοιτέοντες τὰ σήματα καὶ κατευξάμενοι ἐπικατακοιμῶνται· τὸ δ' ἂν ἴδῃ ἐν τῇ ὄψι ἐνύπνιον τούτῳ χρᾶται. Here the oath is by the laying hold of the tomb, and probably this is a more primitive form than the mere uplifting of the sword. It may be urged that as Herodotus specially notes the custom, it must have been foreign to Greek practice, but this argument will not hold, as he mentions the dream-oracle also and seems unaware that the dream-oracles of the heroes, Amphilochos, Amphiaraos and Asklepios, are cases exactly analogous. It will not be forgotten that the ancient oracles of Gaia at Delphi are of the order of dream-oracles sent by Night which Euripides by a probably wilful inversion represents as innovations. Long after the coming of Apollo men still like the Nasamones slept on the ground that they might hear earth's voice.
 
-Θέμιν δ᾽ ἐπεὶ γαΐων  
+Θέμιν δ' ἐπεὶ γαΐων  
 παῖς ἀπενάσσεν ὁ Λα-  
 -τῷος ἀπὸ ζαθέων  
 χρηστηρίων, νύχια  
-χθὼν ἐτεκνώσατο φάσματ᾽ ὀνείρων,  
+χθὼν ἐτεκνώσατο φάσματ' ὀνείρων,  
 οἳ πολέσιν μερόπων τά τε πρῶτα  
-τά τ᾽ ἔπειθ᾽ ὅσ᾽ ἔμελλε τυχεῖν  
+τά τ' ἔπειθ' ὅσ' ἔμελλε τυχεῖν  
 ὕπνου κατὰ δνοφερὰς  
 χαμεύνας ἔφραζον σκοτίου,  
-μαντεῖον δ᾽ ἀφείλετο τιμὰν  
+μαντεῖον δ' ἀφείλετο τιμὰν  
 Φοῖβον φθόνῳ θυγατρός. _Iphig. in Taur._ 1260.
 
 If the omphalos was indeed a tomb the parallel is complete.*
 
 *) Since I wrote the above Dr. Verrall has kindly drawn my attention to the imprecation made by the leader of the Chorus in the Choephoroi on the tomb of Agamemnon (_Choeph._ v. 105) αἰδουμένη σοι βωμὸν ὣς τύμβον πατρὸς λέξω, κ. τ. λ.
 
-Although I am unable to point to a definite instance in which an oath was taken at a grave, still it is well known that oaths were taken by local heroes and it seems not improbable that such would be taken at the actual grave. _E. g._ by Sosipolis, who was an ἐπιχώριος δαίμων appearing in serpent form, oaths were taken on most important occasions ἐπὶ μεγίστοις (Paus. 6. 20. 2); oaths by ancestors are frequent, _e. g._ μάρτυρας δὲ θεοὺς τούς τε ὁρκίους τότε γενομένους ποιούμενοι καὶ τοὺς ὑμετέρους πατρῴους καὶ ἡμετέρους ἐγχωρίους. In a well-known relief in Paris (Roscher, _Lexikon, Heros_, p. 2499) we have a representation of hero-worship. The hero Theseus stands above a low βωμός, or ἐσχάρα with flat top just like that referred on p. 226. Sosippos, the dedicator of the relief, approaches him with hand uplifted in prayer. Here the hero Theseus must be represented at his own βωμοειδὴς τάφος. The curious altar discovered in the Heroon at Olympia must have been a similar structure. It is rightly explained by Curtius (_Die Altäre von Olympia_ 21 ff. Taf. 1.) as the ἐσχάρα of the heroes. It is a low mound of earth about 0.37 metres high, the top covered with tiles and the sides covered over with layers of a sort of λεύκωμα. These have been constantly renewed, and on each successive layer the inscription [SVG] occurs. There are over 13 of these inscribed layers. Prof. Curtius quotes the Scholiast on Eur. _Phoen._ 274-284 --- ἐσχάρα ἔνθα σφαγιάζουσι τοῖς κάτω, μὴ ἔχουσα ὕψος ἀλλ᾽ ἐπὶ τῆς γῆς οὖσα. In contrast to βωμοὶ ἐκ λίθων ὑψωμένοι they are βωμοὶ ἰσόπεδοι ὀνδ᾽ ἐκ λίθων πεποιημένοι. The erecting of such a γήϊνος βωμός was expressly prescribed down to late times at certain magical ceremonies (Dieterich, Abraxas, p. 170). The Erinyes as we have seen are only the ghosts dwelling in tombs; they are specially the avengers of the violated oath and of oaths which were taken at tombs; this would lend them a new fitness. We are too apt to think of an oath as a special judicial ceremony but loosely connected with religion; to primitive man it is only an especially sacred and important form of invocation. Like most ancient things it had its two sides, for better for worse; καὶ εὐορκοῦντι μέν μοι πολλὰ καὶ ἀγαθὰ, ἐπιορκοῦντι δ᾽ ἐξώλεια αὐτῷ τε καὶ γένει, so ended the oath of the Athenian Heliasts. If we may trust Aristotle, the oath was the eldest and most venerable of created things. Styx, the ordeal-water, was from the beginning; Ὠκεανόν τε γὰρ καὶ Τηθὺν ἐποίησαν τῆς γενέσεως πατέρας καὶ τὸν ὅρκον τῶν θεῶν ὕδωρ, τὴν καλουμένην ὑπ᾽ αὐτῶν Στύγα τῶν ποιητῶν. τιμιώτατον μὲν γὰρ τὸ πρεσβύτατον, ὅρκος δὲ τὸ τιμιώτατόν ἐστιν (Arist. _Metaph._ 1. 3, 983 _b_). Finally, the general sanctity of sepulchres throughout Greece is evidenced by an interesting passage in the Tusculan Disputations of Cicero, in which he argues with justice that most of the gods of Greece are but mortals translated. 'Quid? Ino Cadmi filia nonne Leucothea nominata a Graecis Matuta habetur a nostris? quid? totum prope coelum, ne plures persequar, nonne humano genere completum est?' Si vero scrutari vetera et ex his ea quae scriptores Graeci prodiderunt eruere coner, ipsi illi maiorum gentium dii qui habentur hinc a vobis profecti in coelum reperientur. Quaere quorum demonstrantur sepulcra in Graecia; reminiscere (quoniam es initiatus) quae traduntur mysteriis, tum denique quam hoc late pateat intelliges, (Cic. _Tusc. Disputat._ 1. 13). Cicero is right, though he misses a step in the process; dead men went to the sky as gods finally, but they went as heroes to the lower world first, as chthonic powers, before they became Olympian.
+Although I am unable to point to a definite instance in which an oath was taken at a grave, still it is well known that oaths were taken by local heroes and it seems not improbable that such would be taken at the actual grave. _E. g._ by Sosipolis, who was an ἐπιχώριος δαίμων appearing in serpent form, oaths were taken on most important occasions ἐπὶ μεγίστοις (Paus. 6. 20. 2); oaths by ancestors are frequent, _e. g._ μάρτυρας δὲ θεοὺς τούς τε ὁρκίους τότε γενομένους ποιούμενοι καὶ τοὺς ὑμετέρους πατρῴους καὶ ἡμετέρους ἐγχωρίους. In a well-known relief in Paris (Roscher, _Lexikon, Heros_, p. 2499) we have a representation of hero-worship. The hero Theseus stands above a low βωμός, or ἐσχάρα with flat top just like that referred on p. 226. Sosippos, the dedicator of the relief, approaches him with hand uplifted in prayer. Here the hero Theseus must be represented at his own βωμοειδὴς τάφος. The curious altar discovered in the Heroon at Olympia must have been a similar structure. It is rightly explained by Curtius (_Die Altäre von Olympia_ 21 ff. Taf. 1.) as the ἐσχάρα of the heroes. It is a low mound of earth about 0.37 metres high, the top covered with tiles and the sides covered over with layers of a sort of λεύκωμα. These have been constantly renewed, and on each successive layer the inscription [SVG] occurs. There are over 13 of these inscribed layers. Prof. Curtius quotes the Scholiast on Eur. _Phoen._ 274-284 --- ἐσχάρα ἔνθα σφαγιάζουσι τοῖς κάτω, μὴ ἔχουσα ὕψος ἀλλ' ἐπὶ τῆς γῆς οὖσα. In contrast to βωμοὶ ἐκ λίθων ὑψωμένοι they are βωμοὶ ἰσόπεδοι ὀνδ' ἐκ λίθων πεποιημένοι. The erecting of such a γήϊνος βωμός was expressly prescribed down to late times at certain magical ceremonies (Dieterich, Abraxas, p. 170). The Erinyes as we have seen are only the ghosts dwelling in tombs; they are specially the avengers of the violated oath and of oaths which were taken at tombs; this would lend them a new fitness. We are too apt to think of an oath as a special judicial ceremony but loosely connected with religion; to primitive man it is only an especially sacred and important form of invocation. Like most ancient things it had its two sides, for better for worse; καὶ εὐορκοῦντι μέν μοι πολλὰ καὶ ἀγαθὰ, ἐπιορκοῦντι δ' ἐξώλεια αὐτῷ τε καὶ γένει, so ended the oath of the Athenian Heliasts. If we may trust Aristotle, the oath was the eldest and most venerable of created things. Styx, the ordeal-water, was from the beginning; Ὠκεανόν τε γὰρ καὶ Τηθὺν ἐποίησαν τῆς γενέσεως πατέρας καὶ τὸν ὅρκον τῶν θεῶν ὕδωρ, τὴν καλουμένην ὑπ' αὐτῶν Στύγα τῶν ποιητῶν. τιμιώτατον μὲν γὰρ τὸ πρεσβύτατον, ὅρκος δὲ τὸ τιμιώτατόν ἐστιν (Arist. _Metaph._ 1. 3, 983 _b_). Finally, the general sanctity of sepulchres throughout Greece is evidenced by an interesting passage in the Tusculan Disputations of Cicero, in which he argues with justice that most of the gods of Greece are but mortals translated. 'Quid? Ino Cadmi filia nonne Leucothea nominata a Graecis Matuta habetur a nostris? quid? totum prope coelum, ne plures persequar, nonne humano genere completum est?' Si vero scrutari vetera et ex his ea quae scriptores Graeci prodiderunt eruere coner, ipsi illi maiorum gentium dii qui habentur hinc a vobis profecti in coelum reperientur. Quaere quorum demonstrantur sepulcra in Graecia; reminiscere (quoniam es initiatus) quae traduntur mysteriis, tum denique quam hoc late pateat intelliges, (Cic. _Tusc. Disputat._ 1. 13). Cicero is right, though he misses a step in the process; dead men went to the sky as gods finally, but they went as heroes to the lower world first, as chthonic powers, before they became Olympian.
 
 We have then in the vase before us a scene of worship, invocation, or adjuration of a hero taking place at an omphalos-grave-mound. I reserve for the present the discussion of the baetyl stone that surmounts it. It may fairly be asked at this point, supposing the omphalos to be the tomb of a hero or heroine, have we at Delphi any evidence that there was a special hero cultus carried on? We know from the scholiast to Pind. _Nem._ 7. 68 that there was a general festival of heroes at which Apollo was supposed to be host, γίνεται ἐν Δελφοῖς ἥρωσι ξένια ἐν οἷς δοκεῖ ὁ θεὸς ἐπὶ ξένια καλεῖν τοὺς ἥρωας, a curious mythological inversion, for undoubtedly the guests were there long before the host. But fortunately for our argument we know not only of a general guest-feast for heroes, but of a special festival of great moment, held every nine years and called Heroïs. Before passing to the exposition of this festival, it may be noted that the word ἥρως seems originally to have had an adjectival meaning like Semnae, Eumenides, _etc._ and this survives in the gloss of Hesychius ἥρως· δυνατός ἰσχυρός γενναῖος σεμνός. Dead men, οἱ πρότεροι ἄνδρες, are regarded as κρείττονες, ἡρῶες, μεγάλοι, and gradually the cultus adjective changes to substantive, as in the case of Kore, Parthenos, Maia, and the like.
 
 [Fig. 11. --- Anodes of the Earth-Goddess. (Krater at Berlin.)](https://cdn.solaranamnesis.com/JEHarrison/fig11.png)
 
-Plutarch in his priceless _Quaestiones Graecae_ (12.) asks Τίς ἡ παρὰ Δελφοῖς Χάριλα; τρεῖς ἄγουσι Δελφοὶ ἐνναετηρίδας κατὰ τὸ ἑξῆς, ὧν τὴν μὲν Στεπτήριον καλοῦσι τὴν δ᾽ Ἡρωΐδα τὴν δὲ Χαρίλαν... Τῆς δὲ Ἡρωΐδος τὰ πλεῖστα μυστικὸν ἔχει λόγον ὃν ἴσασιν αἱ Θυϊάδες ἐκ δὲ τῶν δρωμένων φανερῶς Σεμέλης ἄν τις ἀναγωγὴν εἰκάσειε. This is all our information about the festival but it is enough. Dr. Kretschmer has shown (_Aus der Anomia_, p. 20) that Semele-Χαμύνη is one of the countless Ge-Demeter earth-goddesses whose κάθοδος and ἄνοδος were celebrated throughout Greece in most primitive fashion in the Thesmophoria. The κάθοδος is the χάριλα, the burying of the girl figure in the chasms or megara, the ἄνοδος or resurrection festival is the Herois. How that ἄνοδος, that resurrection was figured is seen clearly in a vase painting (Fig. 11) published and I venture to think wrongly explained by Dr. Robert in his Archäologische Mährchen (Pl. 4, p. 196). Dr. Robert takes the picture to represent the birth of a spring nymph. But the figure half-rising from the earth can be none other than the earth-goddess, call her Gaia or Demeter or Kore or Pandora as you will. She rises up through the χῶμα γῆς, the omphalos, the grave-mound, which is coated with the usual stucco. We have in this vase painting exactly what we want, the transition from the dead heroine to the goddess, and from the earth mound itself to the anthropomorphic divinity. A festival of Herois rather than of heroes takes us back of course to matriarchal days and it was in matriarchal days that the cult of Gaia must have emerged and developed. Wherever inhumation was practised Gaia cultus and ghost cultus would be closely connected. In Asia Minor, where rock burial prevailed, naturally the symbol of the earth mother would be not a χῶμα γῆς, but a roughhewn rock or some sort of ἀργὸς λίθος. It is in Asia Minor apparently that the eikonic worship of the mother was developed. We see her image emerging from the block of stone on rock tombs (_e. g._ at Arslan Kaïa in Phrygia, as shown in _Athen. Mitteilungen_, 1898, Taf. 2.). And the conical stone of the mother is seen on coins of Perga gradually assuming some semblance of human form (Gerhard, Metroön, Taf. 59.). Where the tomb was simply a χῶμα γῆς the worship of Gaia seems longer to have remained aneikonic. The altar served for an eikon, as according to Porphyry (_De Abst._ 2. 56) was the case among certain Arabians, κατ᾿ ἔτος ἕκαστον ἔθυον παῖδα ὃν ὑπὸ βωμὸν ἔθαπτον, ᾧ χρῶνται ὡς ξοάνῳ.
+Plutarch in his priceless _Quaestiones Graecae_ (12.) asks Τίς ἡ παρὰ Δελφοῖς Χάριλα; τρεῖς ἄγουσι Δελφοὶ ἐνναετηρίδας κατὰ τὸ ἑξῆς, ὧν τὴν μὲν Στεπτήριον καλοῦσι τὴν δ' Ἡρωΐδα τὴν δὲ Χαρίλαν... Τῆς δὲ Ἡρωΐδος τὰ πλεῖστα μυστικὸν ἔχει λόγον ὃν ἴσασιν αἱ Θυϊάδες ἐκ δὲ τῶν δρωμένων φανερῶς Σεμέλης ἄν τις ἀναγωγὴν εἰκάσειε. This is all our information about the festival but it is enough. Dr. Kretschmer has shown (_Aus der Anomia_, p. 20) that Semele-Χαμύνη is one of the countless Ge-Demeter earth-goddesses whose κάθοδος and ἄνοδος were celebrated throughout Greece in most primitive fashion in the Thesmophoria. The κάθοδος is the χάριλα, the burying of the girl figure in the chasms or megara, the ἄνοδος or resurrection festival is the Herois. How that ἄνοδος, that resurrection was figured is seen clearly in a vase painting (Fig. 11) published and I venture to think wrongly explained by Dr. Robert in his Archäologische Mährchen (Pl. 4, p. 196). Dr. Robert takes the picture to represent the birth of a spring nymph. But the figure half-rising from the earth can be none other than the earth-goddess, call her Gaia or Demeter or Kore or Pandora as you will. She rises up through the χῶμα γῆς, the omphalos, the grave-mound, which is coated with the usual stucco. We have in this vase painting exactly what we want, the transition from the dead heroine to the goddess, and from the earth mound itself to the anthropomorphic divinity. A festival of Herois rather than of heroes takes us back of course to matriarchal days and it was in matriarchal days that the cult of Gaia must have emerged and developed. Wherever inhumation was practised Gaia cultus and ghost cultus would be closely connected. In Asia Minor, where rock burial prevailed, naturally the symbol of the earth mother would be not a χῶμα γῆς, but a roughhewn rock or some sort of ἀργὸς λίθος. It is in Asia Minor apparently that the eikonic worship of the mother was developed. We see her image emerging from the block of stone on rock tombs (_e. g._ at Arslan Kaïa in Phrygia, as shown in _Athen. Mitteilungen_, 1898, Taf. 2.). And the conical stone of the mother is seen on coins of Perga gradually assuming some semblance of human form (Gerhard, Metroön, Taf. 59.). Where the tomb was simply a χῶμα γῆς the worship of Gaia seems longer to have remained aneikonic. The altar served for an eikon, as according to Porphyry (_De Abst._ 2. 56) was the case among certain Arabians, κατ᾿ ἔτος ἕκαστον ἔθυον παῖδα ὃν ὑπὸ βωμὸν ἔθαπτον, ᾧ χρῶνται ὡς ξοάνῳ.
 
 The χῶμα γῆς as the sanctuary of the earth-goddess is not confined to the Greeks. Bastian (_Loango_, p. 88) gives an account of his visit to the oracle of Bimsi the mother of the Fetishes (Mama Mokissie). It was enclosed in a thicket difficult of access. Bimsi's dwelling consisted of a pyramid of earth rising in somewhat arched form out of the earth beneath a small tree. Unfortunately the place was so sacred that the traveller was not allowed to approach quite near, but he could distinguish a small hut near the mound with a couch in it for Bimsi when she rose out of the earth to give her oracles. On the couch mats were spread; in fact, it was a kind of lectisternium with the usual στρώματα. Bimsi gave oracles and instruction to kings on their coronation; when there was no king she was silent, which reminds us of the silence at Delphi when Apollo was away. When there was a drought or floods, ceremonies of atonement were performed at the sanctuary of Bimsi.
 
@@ -328,8 +328,8 @@ I return to the vase-painting in Figs. 9 and 10. So far I have dealt only with t
 
 That the black stone surmounting the grave mound is a baetyl or fetich stone utilised as a kind of rude stelè scarcely admits of question. The stone in colour and shape closely resembles the 'Terpon' stone found at Antibes which we know from its inscription to have been sacred to Aphrodite (Kaibel, _Inscr. Gall._ 2424). There was in antiquity and is now among natives a widespread tendency to worship stones of peculiar colour or shape. The natural aerolith was usually black and its sanctity was proved by its descending from the sky. The whole question of the supposed _niger lapis_ has just now become of immediate special interest owing to the discovery in the Forum of what has been alleged to be the black stone of Romulus (see especially C. Smith, _Classical Review_, Feb. 1899, p. 87). This black stone of Romulus or Faustulus is of great importance to my argument because of its connection with the two lions and hence with the cult of the mother of the gods. Rhea-Cybele was of course only the more primitive Asiatic form of the Earth-Mother, Gaia; lions were her natural sacred beasts as long as there were lions where she was worshipped, and they survived in Asia Minor long after they were practically extinct in Greece proper. The black stone was the recognised vehicle or fetich of the mother god. When Pindar (_Pyth._ 3. 77) is 'minded to pray to the Mother' for his friend Hiero, it is because the Mother has special power to heal madness, There is a shrine of the Mother before his very door ---
 
-ἀλλ᾽ ἐπεύξασθαι μὲν ἐγὼν ἐθέλω  
-Ματρὶ, τὰν κοῦραι παρ᾽ ἐμὸν πρόθυρον...
+ἀλλ' ἐπεύξασθαι μὲν ἐγὼν ἐθέλω  
+Ματρὶ, τὰν κοῦραι παρ' ἐμὸν πρόθυρον...
 
 and the Scholiast recounts the occasion of the founding of the shrine; how there was a great thunder-storm, and a stone image of the mother of the gods fell at Pindar's feet καὶ ψόφον ἱκανὸν καὶ φλόγα ἰδεῖν καταφερομένην. τὸν δὲ Πίνδαρον ἐπαισθόμενον συνιδεῖν Μητρὸς θεῶν ἄγαλμα λίθινον τοῖς ποσὶν ἐπερχόμενον... and when Pindar asked the oracle what was to be done, τὸν δὲ ἀνειπεῖν Μητρὸς Θεῶν ἱερὸν ἱδρυσέσθαι... and the prayer of Pindar is thus explained: οἱ δὲ ὅτι καθάρτριά ἐστι τῆς μανίας ἡ θεός. Pindar addresses the Mother not as Rhea, but simply as σεμνὰν θεόν, reminding us of the Semnae who are simply her duplications. The Pindar story is important because we are apt to think of the worship of the Mother of the Gods as imported, late and purely foreign. No doubt the primitive orgiastic Asiatic worship did come in again from without, but the Mother only came back to her own people who had half-forgotten her.
 
@@ -337,9 +337,9 @@ The kathartic power of the Mother's aerolithic stone is of great importance, The
 
 *) For the discussion respecting the Jupiter apis and the Δία λίθον of Polybius, 3. 25, see Strachan Davidson, _Selections from Polybius, Prolegomen_. 8. Mr. Strachan Davidson accepts the emendation Δίαλιθον without hesitation; but see also C. Wunderer, 'Die älteste Eidesformel der Römer (zu Polybius 3. 25, 6),' _Philolog._ 1897, p. 189.
 
-*) Altered from βωμός to λίθος on the authority of Harpocration by Dindorf and Westermann, and now confirmed by Aristotle, _Ath. Resp._ 7: οἱ δ᾽ ἐννέα ἄρχοντες ὄμνυντες πρὸς τῷ λίθῳ κ. τ. λ. Hesychius explains λίθος as βῶλος, βωμός καὶ βάσις.
+*) Altered from βωμός to λίθος on the authority of Harpocration by Dindorf and Westermann, and now confirmed by Aristotle, _Ath. Resp._ 7: οἱ δ' ἐννέα ἄρχοντες ὄμνυντες πρὸς τῷ λίθῳ κ. τ. λ. Hesychius explains λίθος as βῶλος, βωμός καὶ βάσις.
 
-At the first glance, there will probably occur to any archaeologist the analogy of a curious monument mentioned by Pausanias. At Megalopolis in Messene, it will be remembered (p. 208), there was a sanctuary of the Maniae where, it was reported, Orestes went mad after his mother's slaughter. The words that follow (Paus. 8. 34, 2) are so important that I prefer to quote them in the original: οὐ πόρρω δὲ τοῦ ἱεροῦ γῆς χῶμά ἐστιν οὐ μέγα, ἐπίθημα ἔχον λίθου πεποιημένον δάκτυλον, καὶ δὴ καὶ ὄνομα τῷ χώματί ἐστι Δακτύλον μνῆμα. Mr. Frazer translates 'not far from the sanctuary is a small mound of earth surmounted by a finger made of stone --- indeed the mound is named Finger's tomb.' I prefer to render the last sentence, 'Indeed the mound is named Dactyl's monument.' Pausanias says the story went, that when the goddesses were driving Orestes out of his wits they appeared to him black; after he had bitten off his finger, they seemed to him white. Mr. Frazer cites a number of interesting savage parallels where atonement is made by the cutting off of a finger or other limb. Spite of these instances I believe the story about the biting off of the finger to have been late and aetiological. The supposed finger was in all probability a kathartic baetyl known as Dactyl and sacred to the Mother. These baetyl stones were called in Crete Dactyls. Pliny (_N. H._ 37. 61) says 'Idaei dactyli in Creta, ferreo colore humanum pollicem exprimunt' and Porphyry confirms it in his curious account (Porphyry _vit. Pyth._ 17) of the purification of the Cretan mystic, Κρήτης δ᾽ ἐπιβὰς τοῖς Μόργου μύσταις προσῄει ἑνὸς τῶν Ἰδαίων Δακτύλων ὑφ᾽ ὧν καὶ ἐκαθάρθη τᾖ κεραυνίᾳ λίθῳ. Here there is an obvious fusion of sacrament and celebrant. It is perhaps scarcely necessary to note that the Dactyls are everywhere associated with the worship of the Mother. The Argonauts, when they land in Mysia and invoke the Mother, call also on the name of two Dactyls, _viz._ Cyllenus and Titias
+At the first glance, there will probably occur to any archaeologist the analogy of a curious monument mentioned by Pausanias. At Megalopolis in Messene, it will be remembered (p. 208), there was a sanctuary of the Maniae where, it was reported, Orestes went mad after his mother's slaughter. The words that follow (Paus. 8. 34, 2) are so important that I prefer to quote them in the original: οὐ πόρρω δὲ τοῦ ἱεροῦ γῆς χῶμά ἐστιν οὐ μέγα, ἐπίθημα ἔχον λίθου πεποιημένον δάκτυλον, καὶ δὴ καὶ ὄνομα τῷ χώματί ἐστι Δακτύλον μνῆμα. Mr. Frazer translates 'not far from the sanctuary is a small mound of earth surmounted by a finger made of stone --- indeed the mound is named Finger's tomb.' I prefer to render the last sentence, 'Indeed the mound is named Dactyl's monument.' Pausanias says the story went, that when the goddesses were driving Orestes out of his wits they appeared to him black; after he had bitten off his finger, they seemed to him white. Mr. Frazer cites a number of interesting savage parallels where atonement is made by the cutting off of a finger or other limb. Spite of these instances I believe the story about the biting off of the finger to have been late and aetiological. The supposed finger was in all probability a kathartic baetyl known as Dactyl and sacred to the Mother. These baetyl stones were called in Crete Dactyls. Pliny (_N. H._ 37. 61) says 'Idaei dactyli in Creta, ferreo colore humanum pollicem exprimunt' and Porphyry confirms it in his curious account (Porphyry _vit. Pyth._ 17) of the purification of the Cretan mystic, Κρήτης δ' ἐπιβὰς τοῖς Μόργου μύσταις προσῄει ἑνὸς τῶν Ἰδαίων Δακτύλων ὑφ' ὧν καὶ ἐκαθάρθη τᾖ κεραυνίᾳ λίθῳ. Here there is an obvious fusion of sacrament and celebrant. It is perhaps scarcely necessary to note that the Dactyls are everywhere associated with the worship of the Mother. The Argonauts, when they land in Mysia and invoke the Mother, call also on the name of two Dactyls, _viz._ Cyllenus and Titias
 
 οἳ μοῦνοι πολέων μοιραγέται ἠδὲ πάρεδροι  
 Μηγτέρος Ἰδαίης κεκλήαται, ὅσσοι ἔασι  
@@ -351,14 +351,14 @@ It may fairly be urged at this point that the analogy between the vase-painting 
 
 It must be noted at this point that, though the aeroliths fell to earth and belonged to earth, and were vehicles of the earth-mother, they tended, as anthropomorphism advanced, to differentiate off towards the side of the male god. A stone, as soon as you think of your gods anthropomorphically, is not a good symbol of a woman, a χῶμα γῆς is. In many indigenous races, too, as the earth is a woman so the sky is a man, and thus stones coming from the sky tend to be regarded as vehicles of the male god, and specially of Kronos. Photius (_Vit. Isid. Bibl._ p. 1048) says, τῶν βαιτύλων ἄλλον ἄλλῳ ἀνακεῖσθαι θεῷ, Κρόνῳ, Διὶ, Ἡλίῳ καὶ τοῖς ἄλλοις. Hesychius says, sub voce, βαίτυλος ἐκλήθη ὁ λίθος ὃν ἀντὶ Διὸς ὁ Κρόνος κατέπιεν, and the story was popularized in the proverbial saying, καὶ βαίτυλον ἂν κατέπιες (Paroimiogr. 2, 468). Zeus doubtless took over the baetyls of the more primitive Kronos cult and Kronos has many features in common with Helios-Ouranos. Eusebius (_Praep. Eu._ 1. 10) makes Ouranos the inventor of baetyls. Ἔτι δέ φησιν ἐπενόησε θεὸς Οὐρανὸς βαιτύλια λίθους ἐμψύχους μηχανησάμενος. This association with Helios-Kronos-Ouranos points back to the most primitive stratum of Pelasgian mythology. Kronos is everywhere the representative of the old order τὰ Κρονικά. For the full understanding of the omphalos, this is, I think, of no small importance. On the omphalos there was, at least in historical times, no baetyl stelè, but at Delphi there was such a stone, and down to the time of Pausanias it was daily anointed with oil, and at every festival fresh wool was put about it (P. 10. 24. 6). Pausanias does not say what sort of stone it was, he only says it was οὐ μέγας, but adds ἔτι δὲ καὶ δόξα ἐς αὐτὸν δοθῆναι Κρόνῳ τὸν λίθον ἀντὶ [τοῦ] παιδός· καὶ ὡς αὖθις ἥμεσεν αὐτὸν ὁ Κρόνος. This was no mere late δόξα, for the same tradition appears in Hesiod (_Theog._ 493).
 
-ἐπιπλομένων δ᾽ ἐνιαυτῶν  
+ἐπιπλομένων δ' ἐνιαυτῶν  
 Γαίης ἐννεσίῃσι πολυφραδέεσσι δολωθεὶς  
 ὃν γόνον ἂψ ἀνέηκε μέγας Κρόνος ἀγκυλομήτης,  
 νικηθεὶς τέχνῃσι βίηφί τε παιδὸς ἑοῖο.  
-πρῶτον δ᾽ ἐξήμεσσε λίθον, πύματον καταπίνων·  
+πρῶτον δ' ἐξήμεσσε λίθον, πύματον καταπίνων·  
 τὸν μὲν Ζεὺς στήριξε κατὰ χθονὸς εὐρνοδείης  
 Πυθοῖ ἐν ἠγαθέῃ γνάλοις ὑπὸ Παρνησοῖο  
-σῆμ᾽ ἔμεν ἐξοπίσω θαῦμα θνητοῖσι βροτοῖσι.
+σῆμ' ἔμεν ἐξοπίσω θαῦμα θνητοῖσι βροτοῖσι.
 
 The whole childish, savage myth is transparent enough; the sky, Ouranos or Kronos, disgorges (ἐξήμεσσε) the aerolith; before he disgorged it he must have swallowed it. The stone was wrapped up in woollen bands, like swaddling clothes, therefore it was a child. A baetyl carefully swathed would present an appearance very like a stiff Italian bambino, and in the relief of the Capitoline altar (Roscher, p. 1563, Fig. 14) Rhea is presenting to Kronos a swaddled stone which is a very good imitation of a baby. I think, further, that the whole myth was helped out by the fact that the stone was probably oracular and supposed to speak. In the Lithika of the Pseudo-Orpheus we have a curious and interesting account of a λίθος αὐδήεις given by Phoebus Apollo to Helenos. It could only be consulted after fasting and purification; it had to be washed in pure water and clothed in soft raiment like a child; sacrifice was offered to it as a god. If all was rightly done, and then the sacred stone dandled in the arms, the stone would utter its voice
 
@@ -373,7 +373,7 @@ A few lines further down the stone is called the φοιβήτωρ λᾶας, whi
 Τιτανὶς ἄλλη παῖς χθονὸς καθέζετο  
 Φοίβη.
 
-This exactly corresponds to the Γαηΐδα Φοίβην and makes Phoebe a sort of Kore to Gaia Themis. If we may trust Plutarch (_de Ei_ 20. 1) Phoebus meant καθαρὸς and ἀμίαντος; if so Phoebe is as it were the _white_ side, the opposite to Melaina and Erinys. He goes on to make the interesting statement: Φοῖβον δὲ δή που τὸ καθαρὸν καὶ ἁγνὸν οἱ παλαιοὶ πᾶν ὠνόμαζον ὡς ἔτι Θεσσαλοὶ τοὺς ἱερέας ἐν ταῖς ἀποφράσιν ἡμέραις αὐτοὺς ἐφ᾽ ἑαυτῶν ἔξω διατρίβοντας οἶμαι φοιβονομεῖσθαι. Οἱ παλαιοὶ were more likely to concern themselves with questions of taboo and ceremonial sanctity than with the 'purity and radiant beauty of youth.' Finally the use of the word φοιβάς by Euripides should be noted. He says (_Hec._ 827):
+This exactly corresponds to the Γαηΐδα Φοίβην and makes Phoebe a sort of Kore to Gaia Themis. If we may trust Plutarch (_de Ei_ 20. 1) Phoebus meant καθαρὸς and ἀμίαντος; if so Phoebe is as it were the _white_ side, the opposite to Melaina and Erinys. He goes on to make the interesting statement: Φοῖβον δὲ δή που τὸ καθαρὸν καὶ ἁγνὸν οἱ παλαιοὶ πᾶν ὠνόμαζον ὡς ἔτι Θεσσαλοὶ τοὺς ἱερέας ἐν ταῖς ἀποφράσιν ἡμέραις αὐτοὺς ἐφ' ἑαυτῶν ἔξω διατρίβοντας οἶμαι φοιβονομεῖσθαι. Οἱ παλαιοὶ were more likely to concern themselves with questions of taboo and ceremonial sanctity than with the 'purity and radiant beauty of youth.' Finally the use of the word φοιβάς by Euripides should be noted. He says (_Hec._ 827):
 
 ἡ Φοιβὰς ἣν καλοῦσι Κασσάνδραν Φρύγες.
 
@@ -396,7 +396,7 @@ To return to the φοιβήτωρ λᾶας, the Pseudo-Orphic writers no doubt 
 
 Some slight additional probability is added to this view when we consider that the omphalos certainly was moved. If my theory is right it must have begun as an actual tomb somewhere in what is now the precinct of Gaia near the Styx-Cassotis well and the rock of the Sibyl. In the time of Aeschylus and Euripides, it was undoubtedly in the temple of Apollo. The actual grave mound could not be moved as a grave, but if it was a mound plastered with λεύκωμα and if its significance had been lost, it could easily be copied on marble and the marble copy carried to the temple. The omphalos in the time of Pausanias stood, there is little doubt, on the terrace in _front_ of the temple, and there the actual omphalos discovered by the French was found.* This omphalos is obviously a copy of the real cultus object, for the fillets are copied in stone; the original omphalos would of course, like the Kronos stone, be covered with the real woollen fillets. If the omphalos was so freely moved about the like fate may have overtaken the stone of Kronos; it would be smaller and easier to move. In the place where Pausanias saw it, it had no special significance, its proper home was the precinct of Gaia. The incoming worshippers of Apollo were obliged to tolerate and even venerate Gaia, but Kronos being a male god would have been an inconvenient rival to Apollo, and hence everywhere the worship of Kronos became obscured, though even down to the days of Lycophron the tradition that he first held the oracle at Delphi survived.
 
-οἱ δ᾽ ἀμφὶ βωμὸν τοῦ προμάντιος Κρόνου.
+οἱ δ' ἀμφὶ βωμὸν τοῦ προμάντιος Κρόνου.
 
 On which the scholiast (_ad_ v. 200): οἱ δὲ ἀντὶ τοῦ Κρόνου, καί φασιν ὅτι τὸ ἐν Δελφοῖς μαντεῖον πρότερον τοῦ Κρόνου ἦν, ἔνθα ἔλαβον τὸν χρησμὸν οἱ Ἕλληνες ὅτι τῷ δεκάτῳ ἔτει τὸ Ἴλιον πορθήσουσι.
 
@@ -404,17 +404,17 @@ On which the scholiast (_ad_ v. 200): οἱ δὲ ἀντὶ τοῦ Κρόνο�
 
 It remains to say a word as to the primary meaning of the term _omphalos_; as I am no philologist, I can only approach the question from the point of view of tradition and usage, In the _Iliad_ ὀμφαλός is used to mean a. the actual navel of the human body (_Iliad_ 4. 525, 13. 568), b. the boss of a shield; there is no necessary implication that the ὀμφαλός is a central point except in so far as anything dome-shaped has necessarily a centre; the idea seems to be that of _bossiness_. In the _Odyssey_ the word occurs once only (_Od._ 1, 50); Calypso is said to live
 
-Νήσῳ ἐν ἀμφιρύτῃ ὅθι τ᾽ ὀμφαλός ἐστι θαλάσσης,
+Νήσῳ ἐν ἀμφιρύτῃ ὅθι τ' ὀμφαλός ἐστι θαλάσσης,
 
 'in a seagirt isle where is the navel of the sea.'
 
 Liddell and Scott say that the order of significance is as follows: 1. the navel, umbilicus, 2. anything like a navel or boss... umbo, 3. a centre or middle point, so in _Od._ 1, 50, and by a later legend Delphi (or rather a round stone in the Delphic temple) was called ὀμφαλός _as marking the middle point of the earth_, first in Pind. _P._ 4, 131. This sort of loose statement is only tolerated where archaeology is concerned. There is nothing whatever in _Od._ 1. 50 to imply that Calypso dwelt in the middle of the sea. Anyone who has looked at a solitary island on an expanse of level sea, has seen it rise boss-like from the level of the sea; if the sea is human an island is its omphalos. If the land is human, is Gaia, the grave mound is its omphalos. Later, when mankind concerns itself with theories, cosmical and geometrical, a naive local egotism sees in the navel of Gaia the centre of the universe, and stories grow up about eagles meeting in their flight.
 
-That is one side of the question, but the ancients themselves conjectured another meaning. The scholiast on Eurip. _Orestes_ 321 says, ὀμφαλὸς λέγεται ἡ Πυθὼ παρὰ τὸ τὰς ὀμφὰς τὰς ὑπὸ θεοῦ χρηστηριαζόμενος λέγειν, and more decisively and polemically Cornutus (_de Nat. Deor._ 128.), ἐλέχθη δὲ καὶ ὁ τόπος ὀμφαλὸς τῆς γῆς οὐχ ὡς μεσαίτατος ὢν αὐτῆς ἀλλ᾽ ἀπὸ τῆς ἀναδιδομένης ἐν αὐτῷ ὀμφῆς ἥτις ἐστὶ θεία φωνή. The word ὀμφή means especially a divine oracular utterance, and it seems possible that the two notions of the speaking oracular mound or stone and the boss-navel blended; which was prior to the other, is hard to say, but I am inclined to give precedence to the speaking mound, _i. e._ the ὀμφή derivation.
+That is one side of the question, but the ancients themselves conjectured another meaning. The scholiast on Eurip. _Orestes_ 321 says, ὀμφαλὸς λέγεται ἡ Πυθὼ παρὰ τὸ τὰς ὀμφὰς τὰς ὑπὸ θεοῦ χρηστηριαζόμενος λέγειν, and more decisively and polemically Cornutus (_de Nat. Deor._ 128.), ἐλέχθη δὲ καὶ ὁ τόπος ὀμφαλὸς τῆς γῆς οὐχ ὡς μεσαίτατος ὢν αὐτῆς ἀλλ' ἀπὸ τῆς ἀναδιδομένης ἐν αὐτῷ ὀμφῆς ἥτις ἐστὶ θεία φωνή. The word ὀμφή means especially a divine oracular utterance, and it seems possible that the two notions of the speaking oracular mound or stone and the boss-navel blended; which was prior to the other, is hard to say, but I am inclined to give precedence to the speaking mound, _i. e._ the ὀμφή derivation.
 
 For this reason. The notion of the boss, the navel, though it did not necessarily involve, yet early, as we have seen, led on to the notion of centrality. The notion of centrality is much mixed up with ideas of the central hearth, the μεσόμφαλος ἑστία, and the Hestia-Vesta conception seems to me to belong to a later order of conception than that of Gaia-Erinys, the order of Zeus and Apollo. It is noticeable that in the Rig Veda (2. 333, Wilson) we have 'mighty Agni --- the Fire-god --- stationed at the Navel of the Earth... I ask what is the uttermost end of the earth, I ask where is the navel of the world. The altar is the navel of the world. This sacrifice is the navel of the world. Agni is placed by strength upon the navel of the earth.' It is possible that the whole idea of the centre hearth stone came in with the Achaean invasion and Hestia worship. Hestia appears to have assimilated Gaia, at least, in the cosmogony of the σοφοὶ:
 
-καὶ Γαῖα μῆτερ, Ἐστίαν δέ σ᾽ οἱ σοφοὶ  
+καὶ Γαῖα μῆτερ, Ἐστίαν δέ σ' οἱ σοφοὶ  
 βροτῶν καλοῦσιν, ἡμένην ἐν αἰθέρι. --- Eurip. _Frg._ 938.
 
 and Ovid says (_Fasti_ 6. 266),
@@ -422,7 +422,7 @@ and Ovid says (_Fasti_ 6. 266),
 Vesta eadem est et Terra subest vigil ignis utrique  
 Significat sedem terra focusque suam.
 
-Cornutus, it will be remembered, gives a conjoint chapter to Demeter and Hestia (Cornut. _de nat. Deor._ 28.) remarking with more truth than he was aware of, ἑκατέρα δ᾽ ἔοικεν οὐχ ἑτέρα τῆς γῆς εἶναι. In fact, theology, after articulating the ἕν into the πολλά, usually resumes them into the ἕν, hence _mutatis mutandis_ late philosophizing authors are often of considerable use in understanding primitive conditions. An Orphic hymn is nearer to primitive conceptions than the clear outlines of Homer. With the omphalos, as with the Erinyes, the difficulty lies chiefly in the analytic habit of our own minds, our determined and exclusive discriminations. We discuss endlessly whether the omphalos was a tomb, an altar, a sanctuary of Gaia, a fetish stone of Kronos, a μαντεῖον, an εἰκών, when the real solution to all our difficulties is that it was each and all.
+Cornutus, it will be remembered, gives a conjoint chapter to Demeter and Hestia (Cornut. _de nat. Deor._ 28.) remarking with more truth than he was aware of, ἑκατέρα δ' ἔοικεν οὐχ ἑτέρα τῆς γῆς εἶναι. In fact, theology, after articulating the ἕν into the πολλά, usually resumes them into the ἕν, hence _mutatis mutandis_ late philosophizing authors are often of considerable use in understanding primitive conditions. An Orphic hymn is nearer to primitive conceptions than the clear outlines of Homer. With the omphalos, as with the Erinyes, the difficulty lies chiefly in the analytic habit of our own minds, our determined and exclusive discriminations. We discuss endlessly whether the omphalos was a tomb, an altar, a sanctuary of Gaia, a fetish stone of Kronos, a μαντεῖον, an εἰκών, when the real solution to all our difficulties is that it was each and all.
 
 I have kept to the end the interesting question of the attitude of Aeschylus towards this ancient ghost and Gaia cult, the Erinyes and the omphalos. How far was he conscious that the Erinyes were ghosts and snakes? Did he know the omphalos was a tomb? If he knew all this, how far did he, to subserve a theological purpose, intentionally conceal his knowledge?
 
@@ -440,15 +440,15 @@ The true order is first cultus, which shows us to what order of beings the mytho
 
 In the case of Aeschylus, it is curious to note that, probably owing to the subject-matter of the two plays, the religious attitude in the _Choephoroi_ and the _Eumenides_ is wholly different and even opposite. In the _Choephoroi_ the theology is at bottom so primitive as to be no theology at all; it is daemonology, ghost-worship centred round a tomb. It is not necessary for me to emphasize this point beyond what I have said at p. 214; for Dr. Verrall, in his edition of the play, the keynote is the τίτας φόνος (v. 65) the 'avenged blood' of kinsfolk. Earth was literally, physically polluted, and poisoned the murderer --- a notion precisely paralleled by Alcmaeon's story (p. 239). The Earth is Erinys and implacable. But side by side with this, almost indistinguishable from it, is the other thought that the ghost is the Erinys.
 
-ἄλλας τ᾽ ἐφώνει προσβολὰς Ἐρινύων,  
+ἄλλας τ' ἐφώνει προσβολὰς Ἐρινύων,  
 ἐκ τῶν πατρῴων αἱμάτων τελουμένας,  
-ὁρῶντα λαμπρὸν ἐν σκότῳ νωμῶντ᾽ ὀφρύν.
+ὁρῶντα λαμπρὸν ἐν σκότῳ νωμῶντ' ὀφρύν.
 
 'Apparitions of fiends' (I borrow Dr. Verrall's translation) 'brought to effect by that paternal blood, phantoms which the victim, though his eyebrows twitch in the dark, can clearly see.' The 'τελουμένας' shows the transition in the mind of Aeschylus; he does not say the phantoms are the ghosts, but they are brought to effect by the murder. As the doctrine is quaintly put in the mouth of Apollo, with whose religion it had nothing to do, perhaps this is as much as dramatic propriety would allow. On the word προσβολάς I would make one remark. Dr. Verrall (_ad v._ 282) explains that προσβολή signified properly the 'access' of an object to an organ of sense, and _vice versâ_, and hence here comes to mean something practically equivalent to our _apparition_. To cause these προσβολαί, or, as they are sometimes called, ἔφοδοι, was also one of the functions of ἥρωες, _i. e._ dead men, who here again parallel the Erinyes. ὁπόσα δὲ δείματα νυκτὸς παρίσταται καὶ φόβοι καὶ παράνοιαι καὶ ἀναπηδήσεις ἐκ κλίνης... Ἑκάτης φασὶν εἶναι ἐπιβουλὰς (? ἐπιβολάς) καὶ ἡρώων ἐφόδους (Hippocr. περὶ ἱερῆς νούσου, p. 123, 20, v. O. Crusius, _Die Epiphanie der Sirene_, p. 103).
 
 I have already noted (p. 214) that Orestes recognizes in the snake the earth daemon, the Erinys of the dead; it is equally clear that to him, his father's tomb, and earth as a sanctuary are thoughts near akin (v. 588)
 
-ἀλλ᾽ εὔχομαι γῇ τῇδε καὶ πατρὸς τάφῳ
+ἀλλ' εὔχομαι γῇ τῇδε καὶ πατρὸς τάφῳ
 
 and again, v. 124,
 
@@ -456,7 +456,7 @@ and again, v. 124,
 τοὺς γῆς ἔνερθε δαίμονας κλύειν ἐμὰς  
 εὐχάς, πατρῴων ὀμμάτων ἐπισκόπους  
 καὶ γαῖαν αὐτὴν ἣ τὰ πάντα τίκτεται  
-θρέψασά τ᾽ αὖθις τῶνδε κῦμα λαμβάνει.
+θρέψασά τ' αὖθις τῶνδε κῦμα λαμβάνει.
 
 In a word the religion of the _Choephoroi_ is traditional, tribal, inherited, unconscious, profoundly ritualistic. When we turn to the _Eumenides_ the whole attitude is altered, we have a theology conscious, combative, rational, highly moralised, theoretical, with no manner of relation to cultus practices.
 
@@ -469,34 +469,34 @@ but as his great desire is to avoid any mention of unseemly conflict between Gai
 
 So far all is fairly plain sailing. Beginning with a complete anthropomorphism Aeschylus is not required to take cognizance of ghosts and ancestor worship. There is only the venerable figure of Gaia and the vague transitional but always respectable Titanesses. But the moment has come when the omphalos and the Erinyes must be presented to the audience; how could that be done? As to the omphalos I do not think that Aeschylus had any suspicion of the truth. By his time it had been completely taken over by Apollo, moved out of the Gaia precinct and was probably regarded as a portable cultus object of unknown origin and immense antiquity serving as an altar and mercy seat for suppliants to Apollo. The Erinyes who as we have seen were really resident _in_ it are only conceived of as temporarily camping round it because Orestes has fled there. It is the sacred object of the temple, that is all. I have sought in vain for any passage in Aeschylus which could fairly be taken to show that he took the omphalos to be a tomb, but in one chorus of Sophocles (_O. T._ 469) the thought is at least subconsciously present. For Sophocles Apollo has become the minister of vengeance, not of reconciliation ---
 
-ἔνοπλος γὰρ ἐπ᾽ αὐτὸν ἐπενθρώσκει  
+ἔνοπλος γὰρ ἐπ' αὐτὸν ἐπενθρώσκει  
 πυρὶ καὶ στεροπαῖς ὁ Διὸς γενέτας.
 
 Here Apollo is but the double of his father Zeus. Yet it is not forgotten who are the ancient avengers though by a mythological inversion they are made subsidiary.
 
-δειναὶ δ᾽ ἁμ᾽ ἕπονται  
+δειναὶ δ' ἁμ' ἕπονται  
 Κῆρες ἀναπλάκητοι,
 
 where the name Κῆρες points to the ghost aspect --- the Erinyes. And these Κῆρες haunt the ὀμφαλός. The Theban elders (_Oed. Tyr._ v. 475) chant the misery and loneliness of the guilty man.
 
-Φοιτᾷ γὰρ ὑπ᾽ ἀγρίαν  
-ὕλαν ἀνά τ᾽ ἄντρα καὶ  
+Φοιτᾷ γὰρ ὑπ' ἀγρίαν  
+ὕλαν ἀνά τ' ἄντρα καὶ  
 πέτρας ἅτε ταῦρος,  
 μέλεος μελέῳ ποδὶ χηρεύων,  
 τὰ μεσόμφαλα γᾶς ἀπονοσφίζων  
-μαντεῖα· τὰ δ᾽ ἀεὶ  
+μαντεῖα· τὰ δ' ἀεὶ  
 ζῶντα περιποτᾶται.
 
 Here Prof. Jebb observes 'The haunting thoughts of guilt are objectively imaged as terrible words ever sounding in the wanderer's ears.' Yes; and I venture to think more than this, the μεσόμφαλα γᾶς μαντεῖα _are_ εἴδωλα, they are φοίβαι, they are Ἐρινύων προσβολαί. Though the guilty man shuns the actual tomb, _i. e._ the omphalos whence they rise up to haunt him, it is in vain
 
-τὰ δ᾽ ἀεὶ  
+τὰ δ' ἀεὶ  
 ζῶντα περιποτᾶται.
 
 I do not say that Sophocles knew the omphalos was a tomb, but I do say that if his ancestors had never believed it this marvellous chorus would never have been written.
 
 It is when we come to the Erinyes themselves that the theological animus of Aeschylus comes out and here we cannot escape the conclusion that his misrepresentation was wilful and deliberate. All is fair in theology and war. This misrepresentation is in two directions; first, the new and hideous form given to the Erinyes; second, the statement by the priestess and the implication by everyone, except Clytemnestra, that the Erinyes are novel apparitions, strangers to the land and of unknown lineage. The whole illusion is most skilfully arranged. In the first place, the Erinyes being πολυώνυμοι are addressed by no name in particular, they are νυκτὸς παλαιαὶ παῖδες they are ἀπόπτυστοι κοραὶ, θαυμαστὸς λόχος and the like. With great dexterity Aeschylus gives them an entirely new form and then turns round and says: We never saw you before, we do not know who you can be. The type he selects is that of the Gorgons and Harpies, shapes not clearly differentiated in ancient art, and that he has gone to graphic art for his inspiration is clear from the verses.
 
-εἶδόν ποτ᾽ ἤδη Φινέως γεγραμμένας  
+εἶδόν ποτ' ἤδη Φινέως γεγραμμένας  
 δεῖπνον φερούσας. --- v. 50.
 
 The whole horrible description is a vociferous protest against the simple fact that the Erinyes are the same as the familiar Athenian Semnae,* in whose imagination, as the candid Pausanias observed, there was 'nothing fearful,' any more than there was in the images of other underworld divinities. τοῖς δὲ ἀγάλμασιν οὔτε τούτοις ἔπεστιν οὐδὲν φοβερὸν, οὔτε ὅσα ἄλλα κεῖται θεῶν τῶν ὑπογαίων (Paus. 1. 28. 6). Pausanias knew that the Semnae and the Erinyes were the same. Πλησίον δὲ ἱερὸν θεῶν ἐστὶν ἃς καλοῦσιν Ἀθηναῖοι Σεμνὰς Ἠσίοδος δὲ Ἐρινῦς ἐν Θεογονίᾳ. It is noticeable that he refers to Aeschylus only as an innovator. The literary innovation of Aeschylus was powerless to touch cultus practice.
@@ -505,8 +505,8 @@ The whole horrible description is a vociferous protest against the simple fact t
 
 Having made these sensational innovations in the visible form of his Erinyes, and having artfully suppressed their names as though they were unknown and nameless, Aeschylus paves the way for the amazing statement that the Delphic priestess knows them not.
 
-τὸ φῦλον οὐκ ὅπωπα τῆσδ᾽ ὁμιλίας  
-οὐδ᾽ ἥτις αἷα τοῦτ᾽ ἐπεύχεται γένος. --- v. 57.
+τὸ φῦλον οὐκ ὅπωπα τῆσδ' ὁμιλίας  
+οὐδ' ἥτις αἷα τοῦτ' ἐπεύχεται γένος. --- v. 57.
 
 She refers them to Apollo, he being above all things καθάρσιος; with great skill, the taboo of uncleanness that should have rested on the guilty is shifted to the avengers. Even from the Homeric point of view this is a gross misrepresentation. It is Orestes who is θεομυσής. Apollo does not feign complete ignorance; he avoids the issue by dexterously insulting the Erinyes for their virginity. It would indeed have been dramatically impossible for Apollo to say he did not know them; a few hours before the same audience had listened to a full account of Apollo's views on the Erinyes, given by his protégé Orestes; an account which shows, as has clearly been pointed out, an intimate and perfect knowledge of their nature and primitive origin (_Choeph._ vv. 275-295).
 
@@ -516,14 +516,14 @@ Who are ye? this I ask of one and all.
 
 She is conscious that she is officially bound to ask Orestes the question just as much as the Furies, but she skilfully emphasizes the exceptional unfamiliarity of the Erinyes, carefully insisting on their strangeness as a genus not as individuals (v. 410).
 
-ὑμᾶς θ᾽ ὁμοίας οὐδενὶ σπαρτῶν γένει  
-οὔτ᾽ ἐν θεαῖσι πρὸς θεῶν ὁρωμένας  
-οὔτ᾽ οὖν βροτείοις ἐμφερεῖς μορφώμασι.
+ὑμᾶς θ' ὁμοίας οὐδενὶ σπαρτῶν γένει  
+οὔτ' ἐν θεαῖσι πρὸς θεῶν ὁρωμένας  
+οὔτ' οὖν βροτείοις ἐμφερεῖς μορφώμασι.
 
 Athene then pulls herself up, none too soon probably for the sympathies of the audience, and adds with pompous copy-book morality.
 
-λέγειν δ᾽ ἄμομφον ὄντα τοὺς πέλας κακῶς  
-πρόσω δικαίων ἠδ᾽ ἀποστατεῖ θέμις.
+λέγειν δ' ἄμομφον ὄντα τοὺς πέλας κακῶς  
+πρόσω δικαίων ἠδ' ἀποστατεῖ θέμις.
 
 The bifurcation of popular theology favoured the position of Aeschylus; technically he is correct, the Erinyes were not θεοί in the Olympian sense; they were χθόνιοι, their worship was conducted with the rites of ἐναγίζειν not of θύειν, in a word they were divinities of the old Gaia-worshipping stock.
 
@@ -531,25 +531,25 @@ The audience must have waited breathless to hear what answer the Erinyes would m
 
 πεύσει τὰ πάντα συντόμως, Διὸς κόρη·  
 ἡμεῖς γὰρ ἔσμεν Νυκτὸς αἰανῆς τέκνα,  
-Ἀραὶ δ᾽ ἐν οἴκοις γῆς ὑπαὶ κεκλήμεθα.
+Ἀραὶ δ' ἐν οἴκοις γῆς ὑπαὶ κεκλήμεθα.
 
 It is the grave lofty courtesy of the dames of ancient lineage arraigned before the religious parvenue. Aeschylus, prejudiced theologian as he was, is true to dramatic instinct, but how well contrived it is! 'Children of Night,' not of Earth! that would have been too hazardous, it would have brought them into line with hieratic tradition; 'Curses we are called, Arai, a name by then of evil omen, and no one remembered that it was on the hill of the Arai, that judgment was being given.' Did no one remember? it is all but incredible; Athene is obliged to admit,
 
-γένος μὲν οἷδα κληδόνας τ᾽ ἐπωνύμους.
+γένος μὲν οἷδα κληδόνας τ' ἐπωνύμους.
 
 It was by these κληδόνες ἐπώνυμοι that all the theological jugglery was carried on. Athene and Aeschylus chose to remember the κληδόνες that favoured their cause, remembered the Arai, the Erinyes, the Maniae, perhaps the Praxidikae, they forgot the Charites, the Semnae, the Eumenides, or rather they separated them off into new divinities.
 
 Apollo and Athene and the priestess ignore the divinity of the ancient ones, but there is one of the dramatis personae who knows perfectly who and what the Furies are and is not ashamed of it. The real truth is put in just the lips that will most discredit it. Clytemnestra knows the Erinyes and has worshipped them with the precise ritual of the χθόνιοι, the Δημήτριοι, the ἥρωες, _i. e._ with the χοαὶ ἄοινοι, the νηφάλια μειλίγματα, offered by night νυκτίσεμνα δεῖπνα, offered on the ἐσχάρα, the low hero-altar.
 
 ἦ πολλὰ μὲν δὴ τῶν ἐμῶν ἐλείξατε  
-χοάς τ᾽ ἀοίνους νηφάλια μειλίγματα,  
-καὶ νυκτίσεμνα δεῖπν᾽ ἐπ᾿ ἐσχάρᾳ πυρὸς  
+χοάς τ' ἀοίνους νηφάλια μειλίγματα,  
+καὶ νυκτίσεμνα δεῖπν' ἐπ᾿ ἐσχάρᾳ πυρὸς  
 ἔθυον, ὥραν οὐδενὸς κοινὴν θεῶν.
 
 Even Clytemnestra is made to imply that there was something shameful in the service by night, πότνια Νύξ. Clytemnestra as we have already seen knows that the true vehicle of the Erinys is the earth snake, the δεινὴ δράκαινα; but she goes with the times and adopts the splendid imagery of the dog hunting in dreams.
 
-ὄναρ διώκεις θῆρα, κλαγγάνεις δ᾽ ἅπερ  
-κύων μέριμναν οὔποτ᾽ ἐκλιπὼν πόνου.
+ὄναρ διώκεις θῆρα, κλαγγάνεις δ' ἅπερ  
+κύων μέριμναν οὔποτ' ἐκλιπὼν πόνου.
 
 The image of the dog was of course especially useful to anyone who wanted to vilify the Erinyes.
 
@@ -558,7 +558,7 @@ The conclusive proof to my mind that Aeschylus knew perfectly well who the Eriny
 ὁποῖα νίκης μὴ κακῆς ἐπίσκοπα,  
 καὶ ταῦτα γῆθεν ἔκ τε ποντίας δρόσου  
 ἐξ οὐρανοῦ τε κἀνέμων ἀήματα,  
-εὐηλίως πνέοντ᾽ ἐπιστείχειν χθόνα·  
+εὐηλίως πνέοντ' ἐπιστείχειν χθόνα·  
 καρπόν τε γαίας καὶ βοτῶν ἐπίρρυτον  
 ἀστοῖσιν εὐθενοῦντα μὴ κάμνειν χρόνῳ.  
 καὶ τῶν βροτείων σπερμάτων σωτηρίαν. --- 903-909.
@@ -570,15 +570,15 @@ At Megalopolis it would have been simply impossible to play the piece. An audien
 Athene is less guarded in speech and sentiment. She frankly calls the Erinyes, Erinyes, and gives a very complete and satisfactory account, scarcely tallying with her previous ignorance of their nature and functions
 
 μέγα γὰρ δύναται  
-πότνι᾽ Ἐρινὺς παρά τ᾽ ἀθανάτοις  
-τοῖς θ᾽ ὑπὸ γαῖαν περί τ᾿ ἀνθρώπων  
+πότνι' Ἐρινὺς παρά τ' ἀθανάτοις  
+τοῖς θ' ὑπὸ γαῖαν περί τ᾿ ἀνθρώπων  
 φανερῶς τελέως διαπράσσουσιν,  
-τοῖς μὲν ἀοιδὰς τοῖς δ᾽ αὖ δακρύων  
+τοῖς μὲν ἀοιδὰς τοῖς δ' αὖ δακρύων  
 βίον ἀμβλωπὸν παρέχουσαι. --- _Eum._ 951.
 
 In the background of the play always, in the foreground sometimes, there is the conflict of cults. It is not over one individual that Apollo and the Erinyes contend, and this they well remember. There was the parallel case of Alcestis which they aptly quote (v. 723)
 
-τοιαῦτ᾽ ἔδρασας καὶ Φέρητος ἐν δόμοις·  
+τοιαῦτ' ἔδρασας καὶ Φέρητος ἐν δόμοις·  
 Μοίρας ἔπεισας ἀφθίτους θεῖναι βροτούς.
 
 The Moirae, and who are they? only as we have already seen another of the κληδόνες ἐπώνυμοι. This is clearly brought out in
@@ -597,13 +597,13 @@ It is the last outrage, despite is done to the ancient ritual of the νηφάλ�
 
 And again,
 
-πρώταισιν ὑμῖν ἀντέκυρσ᾽ ὁδοιπορῶν  
+πρώταισιν ὑμῖν ἀντέκυρσ' ὁδοιπορῶν  
 νήφων ἀοίνοις. --- _Oed. Col._ v. 100.
 
 The Eumenides is based on the great racial reality of a conflict of cults, but to Aeschylus the interest of his plot was that it was a conflict of ideals. Naturally he did not, could not know that in his veins ran the blood of two different races, with alien habits of religious thought. He was all for Zeus and King Apollo, the Father and the Son, with such unification of will and purpose that their religion was practically a monotheism, but he had to reckon with, to reconcile at all costs the ancient cult of the earth goddesses. The ideal of the Erinyes was the ideal of all primitive moralities, an eye for an eye, and above all the indissolubility of the bond of physical kinship, especially through the mother. Aeschylus could not be expected to see that the system was necessary and highly beneficial in its day and that its passing was attended with grave social dangers. He fastens on the harsh side of it, its implacability, its endlessness
 
 βοᾷ γὰρ λοιγὸν Ἐρινύς  
 παρὰ τῶν πρότερον φθιμένων ἄτην  
-ἑτέραν ἐπάγουσαν ἐπ᾽ ἄτῃ.
+ἑτέραν ἐπάγουσαν ἐπ' ἄτῃ.
 
 He is all for the new ideal of atonement, for Apollo Katharsios --- in itself an advance, destined of course in its turn to pass. It is impossible to avoid a regret that he stooped to the cheap expedient of blackening his opponents. That in doing so he was in part self-deceived only makes of the 'Eumenides' a still more human document.
